@@ -46,15 +46,15 @@ http://112.78.105.23
 
 手機會員端
 
-m.hga008.com
+http://m.hga008.com
 
-m.hga018.com
+http://m.hga018.com
 
-m.hg0088.com
+http://m.hg0088.com
 
-m.hg1088.com
+http://m.hg1088.com
 
-http://http://203.160.140.17/
+http://203.160.140.17/
 
 http://180.94.224.117
 
