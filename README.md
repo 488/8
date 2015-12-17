@@ -24,16 +24,16 @@ AA http://cc59.net  AA http://aa138.net  长城http://ctb988.net  长城http://c
 ----
 会员端
 
-会员http://180.94.224.40  会员http://hg1088.com   会员http://hga008.com  会员http://112.78.105.23 
+http://180.94.224.40  http://hg1088.com   http://hga008.com 员http://112.78.105.23 
 
-员http://112.78.104.13   会员http://hg0088.com  会员http://hga018.com   会员http://112.78.26.130
+http://112.78.104.13   ttp://hg0088.com  http://hga018.com   http://112.78.26.130
 
 
 手機會員端
 
-手机端hhttp://m.hg0088.com  手机端http://m.hga008.com  手机端 http://112.78.105.48
+http://m.hg0088.com  http://m.hga008.com  http://112.78.105.48
 
-手机端http://180.94.224.117  手机端http://203.160.140.17  手机端http://m.hga018.com   
+http://180.94.224.117  http://203.160.140.17  http://112.78.105.48   
 
 
 管理端
