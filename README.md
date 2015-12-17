@@ -24,7 +24,7 @@ AA http://cc59.net  AA http://aa138.net  长城http://ctb988.net  长城http://c
 ----
 会员端
 
-会员http://hga008.com  会员  http://112.78.105.23
+会员http://hga008.com  会员http://112.78.105.23 
 
 会员http://hga018.com   会员http://112.78.26.130
 
@@ -32,7 +32,7 @@ AA http://cc59.net  AA http://aa138.net  长城http://ctb988.net  长城http://c
 
 会员http://hg1088.com   会员http://180.94.224.40
 
-会员http://hg3088.com  会员 http://203.160.140.40
+
 
 
 
