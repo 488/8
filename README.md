@@ -26,7 +26,7 @@ AA http://cc59.net  AA http://aa138.net  长城http://ctb988.net  长城http://c
 
 http://180.94.224.40   http://hg1088.com  http://hga0088.com  http://112.78.105.23 
 
-http://112.78.104.13    http://hg0088.com  http://hga018.c om   http://112.78.26.130
+http://112.78.104.13 http://hga0188.com  http://hg0088.com   http://112.78.26.130
 
 
 手機會員端
