@@ -20,3 +20,16 @@ AA 长城
 -------
 AA http://cc59.net  AA http://aa138.net  长城http://ctb988.net  长城http://ctb988.com
 
+皇冠
+----
+会员端
+http://hga008.com
+http://hga018.com
+http://hg0088.com
+http://hg1088.com
+http://hg3088.com
+http://203.160.140.40
+http://180.94.224.40
+http://112.78.104.13
+http://112.78.26.130
+http://112.78.105.23
