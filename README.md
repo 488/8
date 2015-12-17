@@ -34,68 +34,44 @@ http://hg1088.com   http://180.94.224.40
 
 http://hg3088.com   http://203.160.140.40
 
-http://203.160.140.40
 
-http://180.94.224.40
-
-http://112.78.104.13
-
-http://112.78.26.130
-
-http://112.78.105.23
 
 手機會員端
 
-http://m.hga008.com
+http://m.hga008.com   http://112.78.105.48
 
-http://m.hga018.com
+http://m.hga018.com   http://180.94.224.117
 
-http://m.hg0088.com
+http://m.hg0088.com   http://203.160.140.17/
 
-http://m.hg1088.com
 
-http://203.160.140.17/
-
-http://180.94.224.117
-
-http://112.78.105.48
 
 管理端
 
-https://ag1.hga008.com
+https://ag1.hga008.com  https://123.255.226.104
 
-https://ag1.hga018.com
+https://ag1.hga018.com  https://112.78.105.24
 
-https://ag1.hg0088.com
+https://ag1.hg0088.com  https://ag1.hg1088.com
 
-https://ag1.hg1088.com
 
-https://112.78.105.24
-
-https://123.255.226.104
 
 手機管理端
 
-https://am.hga008.com
+https://am.hga008.com  https://112.78.105.36
 
-https://am.hga018.com
+https://am.hga018.com  https://123.255.226.105
 
-https://am.hg0088.com
+https://am.hg0088.com  https://am.hg1088.com
 
-https://am.hg1088.com
 
-https://123.255.226.105
-
-https://112.78.105.36
 
 舊帳
 
-https://old.hga008.com
+https://old.hga008.com  https://old.hg1088.com
 
-https://old.hga018.com
+https://old.hga018.com  https://old.hg0088.com
 
-https://old.hg0088.com
 
-https://old.hg1088.com
 
 
