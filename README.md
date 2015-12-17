@@ -33,7 +33,7 @@ AA http://cc59.net  AA http://aa138.net  长城http://ctb988.net  长城http://c
 
 手机端hhttp://m.hg0088.com  手机端http://m.hga008.com  手机端 http://112.78.105.48
 
-手机端hhttp://203.160.140.17  手机端hhttp://m.hga018.com   ht手机端htp://180.94.224.117
+手机端http://180.94.224.117  手机端http://203.160.140.17  手机端http://m.hga018.com   
 
 
 管理端
