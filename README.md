@@ -1,3 +1,6 @@
+<a href="http://www.ip138.com/"  target="_blank">中国最大的、最权威的IP数据库</a>
+
+
 直达线路
 -------
 117会员http://52.69.233.115:7211/jini32990f/user/login.html
