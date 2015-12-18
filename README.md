@@ -1,11 +1,13 @@
+
+
 <p>直达线路<br>
-<a href="httphttp://52.74.213.211:7211/jini32990f/user/login.htmlrget="_blank">117:82255</a>|<a href="http://2.bb5522.ws" target="_blank">177:29353</a>|<a href="http://3.bb5522.ws" target="_blank">737:09935</a>|<a href="http://5.bb5522.ws" target="_blank">799:90608</a><br>
+-------<br>
+<a href="hhttp://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">117会员</a>|<a href="http://52.74.213.211:7211/jini32990a/account/login.html" target="_blank">177代理</a>|<a href="http://52.74.213.211:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>|<a href="http://52.74.213.211:7219/msrtp53818a/account/login.html" target="_blank">177代理</a><br>
 <br>
 &nbsp;&nbsp; <br>
 <a href="http://1.bb6688.ws" target="_blank">117:82255</a>|<a href="http://2.bb5522.ws" target="_blank">177:29353</a>|<a href="http://3.bb5522.ws" target="_blank">737:09935</a>|<a href="http://5.bb5522.ws" target="_blank">799:90608</a><br>
 &nbsp;&nbsp; <br>
 <br>
-
 彩票导航 <br>
 --------<br>
 <a href="http://1.bb5522.ws" target="_blank">117:82255</a>|<a href="http://2.bb5522.ws" target="_blank">177:29353</a>|<a href="http://3.bb5522.ws" target="_blank">737:09935</a>|<a href="http://5.bb5522.ws" target="_blank">799:90608</a><br>
