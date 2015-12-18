@@ -1,4 +1,7 @@
-<a href="http://www.ip138.com/"  target="_blank">中国最大的、最权威的IP数据库</a>
+<FORM METHOD=get ACTION="http://www.ip138.com/ips1388.asp" name="ipform" target="_blank">
+<tr><td align="center">IP地址：<input type="text" name="ip" size="16"> 
+<input type="submit" value="查询"><INPUT TYPE="hidden" name="action" value="2">
+</td></tr></FORM>
 
 
 直达线路
