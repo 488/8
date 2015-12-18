@@ -1,13 +1,4 @@
 
-<html>
-
-<head>
-<meta http-equiv="Content-Type" content="text/html; charset=gb2312">
-<title>直达线路 ------- 117会员&nbsp; 117代理&nbsp; 177会员</title>
-<base target="_blank">
-</head>
-
-<body>
 
 <p>直达线路<br>
 -------<br>
