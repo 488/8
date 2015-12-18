@@ -62,7 +62,12 @@ https://old.hga008.com   https://old.hg1088.com
 
 https://old.hga018.com   https://old.hg0088.com
 
+娱乐
+----
 
+申博会员http://msc11.com申博代理http://msc11.net
+
+沙龙会员http://sa36.com沙龙代理http://sa36.net
 
 <p><a href="https://onedrive.live.com/redir?resid=F5B0090663FEEADA!742" target="_blank">微软网盘</a>
 
