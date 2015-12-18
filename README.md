@@ -1,9 +1,3 @@
-<FORM METHOD=get ACTION="http://www.ip138.com/ips1388.asp" name="ipform" target="_blank">
-<tr><td align="center">IP地址：<input type="text" name="ip" size="16"> 
-<input type="submit" value="查询"><INPUT TYPE="hidden" name="action" value="2">
-</td></tr></FORM>
-
-
 直达线路
 -------
 117会员http://52.69.233.115:7211/jini32990f/user/login.html
