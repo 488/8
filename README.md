@@ -22,13 +22,7 @@
 皇冠<br>
 ----<br>
 会员端<br>
-<br>
-http://180.94.224.40 http://hg1088.com http://hga0088.com http://112.78.105.23
-<br>
-<br>
-http://112.78.104.13 http://hga0188.com http://hg0088.com http://112.78.26.130<br>
-<br>
-<br>
+<a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">117会员</a>
 手機會員端<br>
 <br>
 http://m.hg0088.com http://m.hga008.com http://112.78.105.48<br>
