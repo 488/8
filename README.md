@@ -19,9 +19,9 @@
 <a href="http://ctb988.net" target="_blank">长城</a> <a href="http://ctb988.com" target="_blank">长城</a><br><a href="http://ctb988.net" target="_blank">长城</a> &nbsp;&nbsp;<a href="http://ctb988.com" target="_blank">长城</a><br>
 <br>
 皇冠<br>
-----<br>
+<br>
 会员端<br>
-<a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">117会员</a><br>
+<a href="http:hg0088.com" target="_blank">会员1</a><br>
 <br>
 手機會員端<br>
 <br>
