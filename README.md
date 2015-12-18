@@ -2,8 +2,7 @@
 
 <p>直达线路<br>
 
-<a href="http://52.69.233.115:7211/jini32990f/user/login.html" target="_blank">   <a href="http://52.69.233.115:7219/msrtp53818a/account/login.html" target="_blank">117代理</a><br>
-<br>
+<a href="http://52.69.233.115:7211/jini32990f/user/login.html" target="_blank">   
 117会员</a><br>
 <br>
 <a href="http://52.69.233.115:7211/jini32990a/account/login.html" target="_blank">117代理</a><br>
