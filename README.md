@@ -25,18 +25,12 @@
 <br>
 手機會員端<br>
 <br>
-http://m.hg0088.com http://m.hga008.com http://112.78.105.48<br>
-<br>
-http://180.94.224.117 http://203.160.140.17 http://112.78.105.48 <br>
+<a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a>
 <br>
 <br>
 管理端<br>
 <br>
-https://ag1.hga008.com https://123.255.226.104<br>
-<br>
-https://ag1.hga018.com https://112.78.105.24<br>
-<br>
-https://ag1.hg0088.com https://ag1.hg1088.com<br>
+<a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a>
 <br>
 <br>
 <br>
