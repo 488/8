@@ -27,32 +27,9 @@
 <br>
 <a href="http:hg0088.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp;<a href="http:hg0088.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp;<a href="http:hg0088.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp;<a href="http:hg0088.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp;<a href="http:hg0088.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp;<a href="http:hg0088.com" target="_blank">手机会员1</a><br>
 <br>
-手機會員端<br>
 
-<a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a>
-<br>
-<br>
-管理端<br>
-<br>
-<a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a><a href="http:hg0088.com" target="_blank">会员1</a>
-<br>
-<br>
-<br>
-手機管理端<br>
-<br>
-https://am.hga008.com https://112.78.105.36<br>
-<br>
-https://am.hga018.com https://123.255.226.105<br>
-<br>
-https://am.hg0088.com https://am.hg1088.com<br>
-<br>
-<br>
-<br>
-舊帳<br>
-<br>
-https://old.hga008.com https://old.hg1088.com<br>
-<br>
-https://old.hga018.com https://old.hg0088.com<br>
+
+
 <br>
 娱乐<br>
 ----<br>
