@@ -29,8 +29,6 @@
 <br>
 <br>
 娱乐<br>
-----<br>
-<br>
 <br>
 <a href="http://msc11.com" target="_blank">申博会员</a> <a href="http://msc11.net" target="_blank">申博代理</a><br>
 <br>
