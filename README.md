@@ -25,7 +25,7 @@
 <br>
 <a href="https://ag1.hga008.com" target="_blank">代理1</a>&nbsp; &nbsp; &nbsp;<a href="https://ag1.hga018.com" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;<a href="https://112.78.105.24" target="_blank">代理3</a>&nbsp; &nbsp; &nbsp;<a href="https://123.255.226.104" target="_blank">代理4</a>&nbsp; &nbsp; &nbsp;<a href="https://am.hga008.com" target="_blank">手机代理1</a>&nbsp; &nbsp; &nbsp;<a href="https://am.hga018.com" target="_blank">手机代理2</a>&nbsp; &nbsp; &nbsp;<a href="https://123.255.226.105" target="_blank">手机代理3</a>&nbsp; &nbsp; &nbsp;<a href="https://112.78.105.36" target="_blank">手机代理4</a><br>
 <br>
-<a href="http:hg0088.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp;<a href="http:hg0088.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp;<a href="http:hg0088.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp;<a href="http:hg0088.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp;<a href="http:hg0088.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp;<a href="http:hg0088.com" target="_blank">手机会员1</a><br>
+<a href="https://old.hga008.com" target="_blank">旧帐1</a>&nbsp; &nbsp; &nbsp;<a href="https://old.hga018.com" target="_blank">旧帐2</a>&nbsp; &nbsp; &nbsp;<a href="https://old.hg0088.com" target="_blank">旧帐3</a>&nbsp; &nbsp; &nbsp;<a href="https://old.hg0188.com" target="_blank">旧帐4</a>&nbsp; &nbsp; &nbsp;<a href="http://123.255.226.109/" target="_blank">目前最新网址 </a><br>
 <br>
 <br>
 娱乐<br>
