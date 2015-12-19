@@ -32,7 +32,7 @@
 <br>
 <a href="http://msc11.com" target="_blank">申博会员</a> &nbsp; &nbsp; &nbsp;<a href="http://msc11.net" target="_blank">申博代理</a>&nbsp; &nbsp; &nbsp;
 
-<a href="http://sa36.com" target="_blank">沙龙会员</a> &nbsp; &nbsp; &nbsp;<a href="http://sa36.net" target="_blank">龙代理</a>
+<a href="http://sa36.com" target="_blank">沙龙会员</a> &nbsp; &nbsp; &nbsp;<a href="http://sa36.net" target="_blank">沙龙代理</a>
 
 
 　</p>
