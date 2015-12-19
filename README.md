@@ -10,7 +10,7 @@
 <br>
 <a href="http://1.bb5522.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;<a href="http://2.bb5522.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<a href="http://3.bb5522.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;<a href="http://5.bb5522.ws" target="_blank">导航4</a><br>
 <br>
-<a href="http://1.bb6688.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;<a href="http://2.bb5522.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<a href="http://3.bb5522.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;<a href="http://5.bb5522.ws" target="_blank">导航4</a><br>
+<a href="http://1.bb6688.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;<a href="http://2.bb6688.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<a href="http://3.bb6688.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;<a href="http://5.bb6688.ws" target="_blank">导航4</a><br>
 &nbsp;&nbsp; <br>
 <br>
 赛马网站<br>
