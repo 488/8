@@ -6,11 +6,11 @@
 <br>
 <a href="http://52.69.146.33:8205/sscut78205f/user/login.html.auth" target="_blank">737会员</a>&nbsp;&nbsp;<a href="http://52.69.146.33:8205/sscut78205a/account/login.html.auth" target="_blank">737代理</a>&nbsp;&nbsp;<a href="http://52.74.105.71:8210/sscza944851f/user/login.html.auth" target="_blank">799会员</a>&nbsp;&nbsp;<a href="http://52.74.105.71:8210/sscza944851a/account/login.html.auth" target="_blank">799代理</a><br>
 <br>
-彩票导航 <br>117:82255&nbsp;&nbsp;&nbsp;177:29353&nbsp;&nbsp;&nbsp;737:09935&nbsp;&nbsp;&nbsp;799:90608
+彩票导航 <br>验证码&nbsp;&nbsp;&nbsp;117:82255177:29353&nbsp;&nbsp;&nbsp;737:09935&nbsp;&nbsp;&nbsp;799:90608
 <br>
-六合彩-><a href="http://1.bb5522.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;<a href="http://2.bb5522.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<a href="http://3.bb5522.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;<a href="http://5.bb5522.ws" target="_blank">导航4</a><br>
+六合彩->&nbsp;&nbsp;&nbsp;<a href="http://1.bb5522.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;<a href="http://2.bb5522.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<a href="http://3.bb5522.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;<a href="http://5.bb5522.ws" target="_blank">导航4</a><br>
 <br>
-<a href="http://1.bb6688.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;<a href="http://2.bb6688.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<a href="http://3.bb6688.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;<a href="http://5.bb6688.ws" target="_blank">导航4</a><br>
+高频彩->&nbsp;&nbsp;&nbsp;<a href="http://1.bb6688.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;<a href="http://2.bb6688.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<a href="http://3.bb6688.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;<a href="http://5.bb6688.ws" target="_blank">导航4</a><br>
 &nbsp;&nbsp; <br>
 <br>
 赛马网站<br>
@@ -28,7 +28,7 @@
 <a href="https://old.hga008.com" target="_blank">旧帐1</a>&nbsp; &nbsp; &nbsp;<a href="https://old.hga018.com" target="_blank">旧帐2</a>&nbsp; &nbsp; &nbsp;<a href="https://old.hg0088.com" target="_blank">旧帐3</a>&nbsp; &nbsp; &nbsp;<a href="https://old.hg0188.com" target="_blank">旧帐4</a>&nbsp; &nbsp; &nbsp;<a href="http://123.255.226.109/" target="_blank">目前最新网址 </a><br>
 <br>
 <br>
-娱乐<br>
+娱乐网站<br>
 <br>
 <a href="http://msc11.com" target="_blank">申博会员</a> &nbsp; &nbsp; &nbsp;<a href="http://msc11.net" target="_blank">申博代理</a>&nbsp; &nbsp; &nbsp;
 
