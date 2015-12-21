@@ -36,8 +36,19 @@
 
 
 　</p>
+其它网站<br>
+<br>
 
- <a target="_blank" href="http://www.gdb.com.cn/">广东发展</a></li>
+<a href="http://www.hkjc.com/home/chinese/index.asp" target="_blank">香港马会</a> &nbsp; &nbsp; &nbsp;
+<a href="http://www.mjc.mo/race/info/index.php" target="_blank">澳门马会</a> &nbsp; &nbsp; &nbsp;
+<a target="_blank" href="http://www.macauyydog.com/">澳门逸园赛狗</a> &nbsp; &nbsp; &nbsp;
+<a target="_blank" href="http://live5.spbo1.com/">体球网</a> &nbsp; &nbsp; &nbsp;
+<a target="_blank" href="http://www.7m.cn/">7M体育</a> &nbsp; &nbsp; &nbsp;
+<a target="_blank" href="http://www.gooooal.com/">雪缘园</a> &nbsp; &nbsp; &nbsp;
+<a target="_blank" href="http://live.bet007.com/">球探比分</a> &nbsp; &nbsp; &nbsp;
+<a target="_blank" href="http://www.zhcw.com/">中彩網</a> &nbsp; &nbsp; &nbsp;
+
+
 
 
 
