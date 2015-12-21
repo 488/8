@@ -28,7 +28,7 @@
 <br>
 娱乐网站<br>
 <br>
-<a href="http://msc11.com" target="_blank">申博会员1</a> &nbsp; &nbsp; &nbsp;<a href="" target="_blank">申博会员2</a> &nbsp; &nbsp; &nbsp;<a href="" target="_blank">申博会员3</a> &nbsp; &nbsp; &nbsp;<a href="" target="_blank">申博会员4</a> &nbsp; &nbsp; &nbsp;<a href="" target="_blank">申博会员5</a> &nbsp; &nbsp; &nbsp;<a href="http://msc11.net" target="_blank">申博代理</a>&nbsp; &nbsp; &nbsp;<br>
+<a href="http://11msc.com" target="_blank">申博会员1</a> &nbsp; &nbsp; &nbsp;<a href="" target="_blank">申博会员2</a> &nbsp; &nbsp; &nbsp;<a href="" target="_blank">申博会员3</a> &nbsp; &nbsp; &nbsp;<a href="" target="_blank">申博会员4</a> &nbsp; &nbsp; &nbsp;<a href="" target="_blank">申博会员5</a> &nbsp; &nbsp; &nbsp;<a href="http://11msc.net" target="_blank">申博代理</a>&nbsp; &nbsp; &nbsp;<br>
 <br>
 <a href="http://sa36.com" target="_blank">沙龙会员</a> &nbsp; &nbsp; &nbsp;<a href="http://sa36.net" target="_blank">沙龙代理</a>
 
