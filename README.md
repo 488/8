@@ -38,7 +38,6 @@
 　</p>
 其它网站<br>
 <br>
-
 <a href="http://www.hkjc.com/home/chinese/index.asp" target="_blank">香港马会</a> &nbsp; &nbsp; &nbsp;
 <a href="http://www.mjc.mo/race/info/index.php" target="_blank">澳门马会</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="http://www.macauyydog.com/">澳门逸园赛狗</a> &nbsp; &nbsp; &nbsp;
