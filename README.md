@@ -64,7 +64,7 @@
 <a href="http://www.22msc.com" target="_blank">申博会员2</a>&nbsp; &nbsp; &nbsp;
 <a href="http://33msc.com" target="_blank">申博会员3</a>&nbsp; &nbsp; &nbsp;
 <a href="http://22psb.com/" target="_blank">申博会员4</a> &nbsp; &nbsp; &nbsp;
-<a href="http://www.minisunbet.com" target="_blank">申博会员5</a> &nbsp; &nbsp; &nbsp;
+<a href="http://22psb.com" target="_blank">申博会员5</a> &nbsp; &nbsp; &nbsp;
 <a href="http://11msc.net" target="_blank">申博代理1</a>&nbsp; &nbsp; &nbsp;
 <a href="http://www.83sbet.net" target="_blank">申博代理2</a>&nbsp; &nbsp; &nbsp;<br>
 <br>
