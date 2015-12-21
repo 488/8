@@ -21,25 +21,55 @@
 <br>
 赛马网站<br>
 <br>
-<a href="http://cc59.net" target="_blank">AA1</a>&nbsp;&nbsp;&nbsp; <a href="http://aa138.net" target="_blank">AA2</a> &nbsp;&nbsp;&nbsp;<a href="http://jj08.net" target="_blank">AA3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://ctb988.net" target="_blank">长城1</a>&nbsp;&nbsp;&nbsp;<a href="http://ctb988.com" target="_blank">长城2</a>&nbsp;&nbsp;&nbsp;<a href="http://lk988.net" target="_blank">长城3</a>&nbsp;&nbsp;&nbsp;<a href="http://www.fy2668.com" target="_blank">富城会员</a>&nbsp;&nbsp;&nbsp;<a href="http://www.fy2668.com/aaa" target="_blank">富城代理</a><br><br>
+<a href="http://cc59.net" target="_blank">AA1</a>&nbsp;&nbsp;&nbsp; 
+<a href="http://aa138.net" target="_blank">AA2</a> &nbsp;&nbsp;&nbsp;
+<a href="http://jj08.net" target="_blank">AA3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://ctb988.net" target="_blank">长城1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://ctb988.com" target="_blank">长城2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://lk988.net" target="_blank">长城3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.fy2668.com" target="_blank">富城会员</a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.fy2668.com/aaa" target="_blank">富城代理</a><br><br>
 <br>
 足球网站<br>
 <br>
 皇冠<br>
-<a href="http:hga008.com" target="_blank">会员1</a>&nbsp; &nbsp; &nbsp; <a href="http:hga018.com" target="_blank">会员2</a>&nbsp; &nbsp; &nbsp; <a href="http://112.78.105.23" target="_blank">会员3</a>&nbsp; &nbsp; &nbsp; <a href="http://112.78.26.130" target="_blank">会员4</a>&nbsp; &nbsp; &nbsp;<a href="m.hga008.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp; <a href="m.hga018.com" target="_blank">手机会员2</a>&nbsp; &nbsp; &nbsp;<a href="http://203.160.140.17/" target="_blank">手机会员3</a>&nbsp; &nbsp; &nbsp;<a href="http://180.94.224.117" target="_blank">手机会员4</a><br>
+<a href="http:hga008.com" target="_blank">会员1</a>&nbsp; &nbsp; &nbsp; 
+<a href="http:hga018.com" target="_blank">会员2</a>&nbsp; &nbsp; &nbsp; 
+<a href="http://112.78.105.23" target="_blank">会员3</a>&nbsp; &nbsp; &nbsp; 
+<a href="http://112.78.26.130" target="_blank">会员4</a>&nbsp; &nbsp; &nbsp;
+<a href="m.hga008.com" target="_blank">手机会员1</a>&nbsp; &nbsp; &nbsp; 
+<a href="m.hga018.com" target="_blank">手机会员2</a>&nbsp; &nbsp; &nbsp;
+<a href="http://203.160.140.17/" target="_blank">手机会员3</a>&nbsp; &nbsp; &nbsp;
+<a href="http://180.94.224.117" target="_blank">手机会员4</a><br>
 <br>
-<a href="https://ag1.hga008.com" target="_blank">代理1</a>&nbsp; &nbsp; &nbsp;<a href="https://ag1.hga018.com" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;<a href="https://112.78.105.24" target="_blank">代理3</a>&nbsp; &nbsp; &nbsp;<a href="https://123.255.226.104" target="_blank">代理4</a>&nbsp; &nbsp; &nbsp;<a href="https://am.hga008.com" target="_blank">手机代理1</a>&nbsp; &nbsp; &nbsp;<a href="https://am.hga018.com" target="_blank">手机代理2</a>&nbsp; &nbsp; &nbsp;<a href="https://123.255.226.105" target="_blank">手机代理3</a>&nbsp; &nbsp; &nbsp;<a href="https://112.78.105.36" target="_blank">手机代理4</a><br>
+<a href="https://ag1.hga008.com" target="_blank">代理1</a>&nbsp; &nbsp; &nbsp;
+<a href="https://ag1.hga018.com" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;
+<a href="https://112.78.105.24" target="_blank">代理3</a>&nbsp; &nbsp; &nbsp;
+<a href="https://123.255.226.104" target="_blank">代理4</a>&nbsp; &nbsp; &nbsp;
+<a href="https://am.hga008.com" target="_blank">手机代理1</a>&nbsp; &nbsp; &nbsp;
+<a href="https://am.hga018.com" target="_blank">手机代理2</a>&nbsp; &nbsp; &nbsp;
+<a href="https://123.255.226.105" target="_blank">手机代理3</a>&nbsp; &nbsp; &nbsp;
+<a href="https://112.78.105.36" target="_blank">手机代理4</a><br>
 <br>
-<a href="https://old.hga008.com" target="_blank">旧帐1</a>&nbsp; &nbsp; &nbsp;<a href="https://old.hga018.com" target="_blank">旧帐2</a>&nbsp; &nbsp; &nbsp;<a href="https://old.hg0088.com" target="_blank">旧帐3</a>&nbsp; &nbsp; &nbsp;<a href="https://old.hg0188.com" target="_blank">旧帐4</a>&nbsp; &nbsp; &nbsp;<a href="http://123.255.226.109/" target="_blank">目前最新网址 </a><br>
+<a href="https://old.hga008.com" target="_blank">旧帐1</a>&nbsp; &nbsp; &nbsp;
+<a href="https://old.hga018.com" target="_blank">旧帐2</a>&nbsp; &nbsp; &nbsp;<
+a href="https://old.hg0088.com" target="_blank">旧帐3</a>&nbsp; &nbsp; &nbsp;
+<a href="https://old.hg0188.com" target="_blank">旧帐4</a>&nbsp; &nbsp; &nbsp;
+<a href="http://123.255.226.109/" target="_blank">目前最新网址 </a><br>
 <br>
 <br>
 娱乐网站<br>
 <br>
 <a href="http://11msc.com" target="_blank">申博会员1</a> &nbsp; &nbsp; &nbsp;
-<a href="http://www.22msc.com" target="_blank">申博会员2</a> &nbsp; &nbsp; &nbsp;<a href="http://33msc.com" target="_blank">申博会员3</a> &nbsp; &nbsp; &nbsp;<a href="http://22psb.com/" target="_blank">申博会员4</a> &nbsp; &nbsp; &nbsp;<a href="http://www.minisunbet.com" target="_blank">申博会员5</a> &nbsp; &nbsp; &nbsp;<a href="http://11msc.net" target="_blank">申博代理1</a>&nbsp; &nbsp; &nbsp;<a href="http://www.83sbet.net" target="_blank">申博代理2</a>&nbsp; &nbsp; &nbsp;<br>
+<a href="http://www.22msc.com" target="_blank">申博会员2</a>&nbsp; &nbsp; &nbsp;
+<a href="http://33msc.com" target="_blank">申博会员3</a>&nbsp; &nbsp; &nbsp;
+<a href="http://22psb.com/" target="_blank">申博会员4</a> &nbsp; &nbsp; &nbsp;
+<a href="http://www.minisunbet.com" target="_blank">申博会员5</a> &nbsp; &nbsp; &nbsp;
+<a href="http://11msc.net" target="_blank">申博代理1</a>&nbsp; &nbsp; &nbsp;
+<a href="http://www.83sbet.net" target="_blank">申博代理2</a>&nbsp; &nbsp; &nbsp;<br>
 <br>
-<a href="http://sa36.com" target="_blank">沙龙会员</a> &nbsp; &nbsp; &nbsp;<a href="http://sa36.net" target="_blank">沙龙代理</a>
+<a href="http://sa36.com" target="_blank">沙龙会员</a> &nbsp; &nbsp; &nbsp;
+<a href="http://sa36.net" target="_blank">沙龙代理</a>
 
 
 　</p>
