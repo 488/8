@@ -70,7 +70,7 @@
 <a href="https://old.hga018.com" target="_blank">旧帐2</a>&nbsp; &nbsp; &nbsp;
 <a href="https://old.hg0088.com" target="_blank">旧帐3</a>&nbsp; &nbsp; &nbsp;
 <a href="https://old.hg0188.com" target="_blank">旧帐4</a>&nbsp; &nbsp; &nbsp;
-<a href="http://123.255.226.109/" target="_blank">目前最新网址 </a><br>
+<a href="http://123.255.226.109/" target="_blank">目前最新网址 </a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 <br>
 娱乐网站<br>
@@ -84,7 +84,7 @@
 <a href="http://www.83sbet.net" target="_blank">申博代理2</a>&nbsp; &nbsp; &nbsp;<br>
 <br>
 <a href="http://sa36.com" target="_blank">沙龙会员</a> &nbsp; &nbsp; &nbsp;
-<a href="http://sa36.net" target="_blank">沙龙代理</a>
+<a href="http://sa36.net" target="_blank">沙龙代理</a>&nbsp; &nbsp; &nbsp;<br>
 
 
 　</p>
