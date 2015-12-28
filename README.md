@@ -1,3 +1,5 @@
+<iframe src="http://123.168kai.com/sharehtml/live?setcode=4001&codes=4001,10011,1008,10016,10014,10041,1006,2002,2007" width="800" height="30" frameborder="0" marginwidth="0" marginheight="0" scrolling="no"></iframe><br>
+<br>
 <p>直达线路<br>
 <br>
 <a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">117会员</a>&nbsp;&nbsp;<a href="http://52.74.213.211:7211/jini32990a/account/login.html" target="_blank">117代理</a>&nbsp;&nbsp;<a href="http://52.74.213.211:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;<a href="http://52.74.213.211:7219/msrtp53818a/account/login.html" target="_blank">177代理</a><br>
