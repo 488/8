@@ -73,7 +73,7 @@
 <a href="http://123.255.226.109/" target="_blank">目前最新网址 </a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 皇冠客服：+63 915 195 0193&nbsp;&nbsp;&nbsp;+63 915 195 5533<br>
-电子邮箱:royal888crown@hotmail.com
+电子邮箱：royal888crown@hotmail.com
 <br>
 <br>
 娱乐网站<br>
