@@ -103,7 +103,8 @@
 <a target="_blank" href="http://www.zhcw.com/">中彩網</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 <a target="_blank" href="http://www.1396mm.com/">博世界</a> &nbsp; &nbsp; &nbsp;
-<a target="_blank" href="http://www.6hck.com/">六合彩库</a> &nbsp; &nbsp; &nbsp;<br>
+<a target="_blank" href="http://www.6hck.com/">六合彩库</a> &nbsp; &nbsp; &nbsp;
+<a target="_blank" href="http://bet.hkjc.com/marksix/default.aspx">搅珠日期</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 <li>如有任何疑问，请发邮件到 <a href="mailto:comeforu2012@gmail.com">sw13148@gmail.com</a> 咨询和交流。</li>
 </ul>
