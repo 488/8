@@ -112,9 +112,10 @@
 <a href="http://1drv.ms/1n1E0F4" target="_blank">蓝灯apk</a> &nbsp; &nbsp; &nbsp;
 <a href="http://1drv.ms/1OQZDSB" target="_blank">赛风exe</a> &nbsp; &nbsp; &nbsp;
 <a href="http://1drv.ms/1OQZQ8q" target="_blank">赛风apk</a> &nbsp; &nbsp; &nbsp;
-<a href="http://1drv.ms/1OQZIG3" target="_blank">无界exe</a> &nbsp; &nbsp; &nbsp;
-<a href="http://1drv.ms/1OQZIG3" target="_blank">无界apk</a> &nbsp; &nbsp; &nbsp;
-<iframe src="https://onedrive.live.com/embed?cid=993365BB5582C149&resid=993365BB5582C149%21120&authkey=AMsdVQiKzALdrAk" width="98" height="120" frameborder="0" scrolling="no"></iframe><br>
+<a href="http://1drv.ms/231iOiW" target="_blank">无界exe</a> &nbsp; &nbsp; &nbsp;
+<a href="http://1drv.ms/231iRuU" target="_blank">无界apk</a> &nbsp; &nbsp; &nbsp;
+<a href="http://1drv.ms/231iRuU" target="_blank">自由门exe</a> &nbsp; &nbsp; &nbsp;
+<a href="http://1drv.ms/231iRuU" target="_blank">自由门apk</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 <li>如有任何疑问，请发邮件到 <a href="mailto:comeforu2012@gmail.com">sw13148@gmail.com</a> 咨询和交流。</li>
 </ul>
