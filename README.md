@@ -106,6 +106,9 @@
 <a target="_blank" href="http://www.6hck.com/">六合彩库</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="http://bet.hkjc.com/marksix/default.aspx">搅珠日期</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
+软件下载<br>
+<br>
+<a href="http://1drv.ms/1n1E0F4" target="_blank">蓝灯apkapk</a> &nbsp; &nbsp; &nbsp;
 <li>如有任何疑问，请发邮件到 <a href="mailto:comeforu2012@gmail.com">sw13148@gmail.com</a> 咨询和交流。</li>
 </ul>
 </body>
