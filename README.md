@@ -109,7 +109,7 @@
 软件下载<br>
 <br>
 <a href="http://1drv.ms/1JMmj6c" target="_blank">蓝灯exe</a> &nbsp; &nbsp; &nbsp;
-<a href="http://1drv.ms/1n1E0F4" target="_blank">蓝灯apk</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/gm1i2asd1arzai2smcflaiatr7l540qb" target="_blank">蓝灯apk</a> &nbsp; &nbsp; &nbsp;
 <a href="http://1drv.ms/1OQZDSB" target="_blank">赛风exe</a> &nbsp; &nbsp; &nbsp;
 <a href="http://1drv.ms/1OQZQ8q" target="_blank">赛风apk</a> &nbsp; &nbsp; &nbsp;
 <a href="http://1drv.ms/231iOiW" target="_blank">无界exe</a> &nbsp; &nbsp; &nbsp;
