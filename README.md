@@ -108,14 +108,14 @@
 <br>
 软件下载<br>
 <br>
-<a href="http://1drv.ms/1JMmj6c" target="_blank">蓝灯exe</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/p1um5q1s9apl7zxtsyuyzhhpsa4oc89p" target="_blank">蓝灯exe</a> &nbsp; &nbsp; &nbsp;
 <a href="https://app.box.com/s/gm1i2asd1arzai2smcflaiatr7l540qb" target="_blank">蓝灯apk</a> &nbsp; &nbsp; &nbsp;
-<a href="http://1drv.ms/1OQZDSB" target="_blank">赛风exe</a> &nbsp; &nbsp; &nbsp;
-<a href="http://1drv.ms/1OQZQ8q" target="_blank">赛风apk</a> &nbsp; &nbsp; &nbsp;
-<a href="http://1drv.ms/231iOiW" target="_blank">无界exe</a> &nbsp; &nbsp; &nbsp;
-<a href="http://1drv.ms/231iRuU" target="_blank">无界apk</a> &nbsp; &nbsp; &nbsp;
-<a href="http://1drv.ms/1Q00Upz" target="_blank">自由门exe</a> &nbsp; &nbsp; &nbsp;
-<a href="http://1drv.ms/1Q010NO" target="_blank">自由门apk</a> &nbsp; &nbsp; &nbsp;<br>
+<a href="https://app.box.com/s/u10aaw8k7vhpsrz988clgqxzxualc1m1" target="_blank">赛风exe</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/ce2aje0qw7yw2nwa64qqiklu2ij3hwml" target="_blank">赛风apk</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/4j8ziz7lfh8qfgq72iab0pr8olj3kpte" target="_blank">无界exe</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/g3uden47sadfk33lqx1jzhpozh31w1vd" target="_blank">无界apk</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/b183tc13m2z72aphqvuf8mrcx6mjlwac" target="_blank">自由门exe</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/65asfwpygkzwkvyk62ixocqnkc3ugnsd" target="_blank">自由门apk</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 <li>如有任何疑问，请发邮件到 <a href="mailto:comeforu2012@gmail.com">sw13148@gmail.com</a> 咨询和交流。</li>
 </ul>
