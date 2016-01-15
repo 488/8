@@ -117,6 +117,12 @@
 <a href="https://app.box.com/s/b183tc13m2z72aphqvuf8mrcx6mjlwac" target="_blank">自由门exe</a> &nbsp; &nbsp; &nbsp;
 <a href="https://app.box.com/s/65asfwpygkzwkvyk62ixocqnkc3ugnsd" target="_blank">自由门apk</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
+<a href="https://app.box.com/s/hnctf83u6975si0sklaegxjo3p39o3q0" target="_blank">IDM</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/hav2kneecv2bt2ha5qxp4c1bgi4cxvi3" target="_blank">谷歌浏览器</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/3es62cjevxbzqphjy1kg9l4lb78erpgr" target="_blank">火狐浏览器</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/1lah3avucwz3gk6npjiuxc1oti6tqy6x" target="_blank">K-Meleon浏览器</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/78xy0oxyod7tvlo1dbmpx3axr9d4sgqv" target="_blank">WinRAR3</a> &nbsp; &nbsp; &nbsp;
+<a href="https://app.box.com/s/4r7wi9qukh7af1i0s344r3eukf7uoaqg" target="_blank">念青五笔</a> &nbsp; &nbsp; &nbsp;
 <li>如有任何疑问，请发邮件到 <a href="mailto:comeforu2012@gmail.com">sw13148@gmail.com</a> 咨询和交流。</li>
 </ul>
 </body>
