@@ -130,7 +130,6 @@ Android>>
 <a href="https://app.box.com/s/65asfwpygkzwkvyk62ixocqnkc3ugnsd" target="_blank">自由门</a> &nbsp; &nbsp; &nbsp;
 <a href="https://app.box.com/s/bfxnzmmnjhlu6dx36pyg0uzr9r00l1vk" target="_blank">赛马直播</a> &nbsp; &nbsp; &nbsp;
 <a href="https://app.box.com/s/qb92sl0vxcgpzrqt0j41j60gss9kadpe" target="_blank">路由器</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/82x7lmk3sfgizysp8j86iuyj17d9hjdp" target="_blank">远程桌面</a> &nbsp; &nbsp; &nbsp;
 <a href="https://app.box.com/s/82x7lmk3sfgizysp8j86iuyj17d9hjdp" target="_blank">远程桌面</a> &nbsp; &nbsp; &nbsp;<br>
 
 
