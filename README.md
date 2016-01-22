@@ -13,7 +13,7 @@
 <a href="http://5.bb5522.ws" target="_blank">导航4</a><br>
 <br>
 高频彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://1.bb6688.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://sf1.16888xyz.link" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://2.bb6688.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://3.bb6688.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://5.bb6688.ws" target="_blank">导航4</a><br>
