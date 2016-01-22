@@ -14,9 +14,9 @@
 <br>
 高频彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://sf1.16888xyz.link" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://2.bb6688.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://3.bb6688.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://5.bb6688.ws" target="_blank">导航4</a><br>
+<a href="http://sf2.16888xyz.link" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://sf3.16888xyz.link" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://sf5.16888xyz.link" target="_blank">导航4</a><br>
 &nbsp;&nbsp; <br>
 <br>
 赛马网站<br>
