@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(117改名为112)<br>
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示:高频彩地址已更新)<br>
 <br>
 <a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">112会员</a>&nbsp;&nbsp;<a href="http://52.192.200.16:7211/jini32990a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;<a href="http://52.74.213.211:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;<a href="http://52.74.213.211:7219/msrtp53818a/account/login.html" target="_blank">177代理</a><br>
 <br>
