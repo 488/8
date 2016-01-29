@@ -106,34 +106,14 @@
 <a target="_blank" href="http://www.6hck.com/">六合彩库</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="http://bet.hkjc.com/marksix/default.aspx">搅珠日期</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
-软件下载<br>
+软件相关<br>
 <br>
-Windows>>
-<a href="https://app.box.com/s/p1um5q1s9apl7zxtsyuyzhhpsa4oc89p" target="_blank">蓝灯</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/u10aaw8k7vhpsrz988clgqxzxualc1m1" target="_blank">赛风</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/4j8ziz7lfh8qfgq72iab0pr8olj3kpte" target="_blank">无界</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/b183tc13m2z72aphqvuf8mrcx6mjlwac" target="_blank">自由门</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/hnctf83u6975si0sklaegxjo3p39o3q0" target="_blank">IDM</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/hav2kneecv2bt2ha5qxp4c1bgi4cxvi3" target="_blank">谷歌浏览器</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/3es62cjevxbzqphjy1kg9l4lb78erpgr" target="_blank">火狐浏览器</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/1lah3avucwz3gk6npjiuxc1oti6tqy6x" target="_blank">K-Meleon浏览器</a> &nbsp; &nbsp; &nbsp;<br>
+<a href="http://jianguoyun.com/p/DZ6J47AQvfjyBRiJ7BA" target="_blank">Windows</a> &nbsp; &nbsp; &nbsp;
+<a href="https://skype.com" target="_blank">Android</a> &nbsp; &nbsp; &nbsp;
 <br>
-<a href="https://app.box.com/s/zq0lotssnviiul8o7h73kqwol7d4xxc9" target="_blank">赛马直播</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/yzp4xqfofnk82uwbtkik9r2slwhkeqso" target="_blank">VeraCrypt</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/78xy0oxyod7tvlo1dbmpx3axr9d4sgqv" target="_blank">WinRAR3</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/4r7wi9qukh7af1i0s344r3eukf7uoaqg" target="_blank">念青五笔</a> &nbsp; &nbsp; &nbsp;<br>
-<br>
-Android>>
-<a href="https://app.box.com/s/gm1i2asd1arzai2smcflaiatr7l540qb" target="_blank">蓝灯</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/ce2aje0qw7yw2nwa64qqiklu2ij3hwml" target="_blank">赛风</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/g3uden47sadfk33lqx1jzhpozh31w1vd" target="_blank">无界</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/65asfwpygkzwkvyk62ixocqnkc3ugnsd" target="_blank">自由门</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/bfxnzmmnjhlu6dx36pyg0uzr9r00l1vk" target="_blank">赛马直播</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/qb92sl0vxcgpzrqt0j41j60gss9kadpe" target="_blank">路由器</a> &nbsp; &nbsp; &nbsp;
-<a href="https://app.box.com/s/82x7lmk3sfgizysp8j86iuyj17d9hjdp" target="_blank">远程桌面</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 
-<li>如有任何疑问，请发邮件到 <a href="mailto:comeforu2012@gmail.com">sw13148@gmail.com</a> 咨询和交流。</li>
+<li>如有任何疑问，请发邮件到 <a href="mailto:sw13148@gmail.com">sw13148@gmail.com</a> 咨询和交流。</li>
 </ul>
 </body>
 
