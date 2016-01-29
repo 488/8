@@ -109,7 +109,7 @@
 软件相关<br>
 <br>
 <a href="http://jianguoyun.com/p/DZ6J47AQvfjyBRiJ7BA" target="_blank">Windows</a> &nbsp; &nbsp; &nbsp;
-<a href="https://skype.com" target="_blank">Android</a> &nbsp; &nbsp; &nbsp;
+<a href="http://jianguoyun.com/p/DR0Kf_AQvfjyBRj36xA" target="_blank">Android</a> &nbsp; &nbsp; &nbsp;
 <br>
 <br>
 
