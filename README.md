@@ -1,6 +1,11 @@
 <p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示:高频彩地址已更新)<br>
 <br>
-<a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">112会员</a>&nbsp;&nbsp;<a href="http://52.192.200.16:7211/jini32990a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;<a href="http://52.74.213.211:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;<a href="http://52.74.213.211:7219/msrtp53818a/account/login.html" target="_blank">177代理</a><br>
+<a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">112会员</a>&nbsp;&nbsp;
+<a href="http://52.192.200.16:7211/jini32990a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;
+<a href="http://52.74.213.211:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;
+<a href="http://52.74.213.211:7219/msrtp53818a/account/login.html" target="_blank">177代理&nbsp;&nbsp;
+<a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Member79733.shtml?t=dd20160201" target="_blank">777会员&nbsp;&nbsp;
+<a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Agent79733.shtml?t=dd20160201" target="_blank">777代理&nbsp;&nbsp;</a><br>
 <br>
 <a href="http://52.69.146.33:8205/sscut78205f/user/login.html.auth" target="_blank">737会员</a>&nbsp;&nbsp;<a href="http://52.69.146.33:8205/sscut78205a/account/login.html.auth" target="_blank">737代理</a>&nbsp;&nbsp;<a href="http://52.74.105.71:8210/sscza944851f/user/login.html.auth" target="_blank">799会员</a>&nbsp;&nbsp;<a href="http://52.74.105.71:8210/sscza944851a/account/login.html.auth" target="_blank">799代理</a><br>
 <br>
