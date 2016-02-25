@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：高频彩更换新安全码737:52850|799:32919)<br>
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：737,799直达线路已更新)<br>
 <br>
 <a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">112会员</a>&nbsp;&nbsp;
 <a href="http://52.192.200.16:7211/jini32990a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;
@@ -7,9 +7,12 @@
 <a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Member79733.shtml?t=dd20160201" target="_blank">777会员&nbsp;&nbsp;
 <a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Agent79733.shtml?t=dd20160201" target="_blank">777代理&nbsp;&nbsp;</a><br>
 <br>
-<a href="http://52.69.146.33:8205/sscut78205f/user/login.html.auth" target="_blank">737会员</a>&nbsp;&nbsp;<a href="http://52.69.146.33:8205/sscut78205a/account/login.html.auth" target="_blank">737代理</a>&nbsp;&nbsp;<a href="http://52.74.105.71:8210/sscza944851f/user/login.html.auth" target="_blank">799会员</a>&nbsp;&nbsp;<a href="http://52.74.105.71:8210/sscza944851a/account/login.html.auth" target="_blank">799代理</a><br>
+<a href="http://52.74.222.142:8205/sscut78205f/user/login.html.auth" target="_blank">737会员</a>&nbsp;&nbsp;
+<a href="http://52.74.222.142:8205/sscut78205a/account/login.html.auth" target="_blank">737代理</a>&nbsp;&nbsp;
+<a href="http://52.74.222.142:8210/sscza944851f/user/login.html.auth" target="_blank">799会员</a>&nbsp;&nbsp;
+<a href="http://52.74.222.142:8210/sscza944851a/account/login.html.auth" target="_blank">799代理</a><br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;&nbsp;112:20360&nbsp;&nbsp;&nbsp;177:29353&nbsp;&nbsp;&nbsp;737:58113&nbsp;&nbsp;&nbsp;799:90608<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;&nbsp;112:20360&nbsp;&nbsp;&nbsp;177:29353&nbsp;&nbsp;&nbsp;737:52850&nbsp;&nbsp;&nbsp;799:32919<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://1.bb5522.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
