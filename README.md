@@ -118,7 +118,7 @@
 <a target="_blank" href="http://www.6hck.com/">六合彩库</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="http://bet.hkjc.com/marksix/default.aspx">搅珠日期</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="https://iplrak.net">ipleak</a> &nbsp; &nbsp; &nbsp;
-<a target="_blank" href="https://check.torproject.org">tor测试</a> &nbsp; &nbsp; &nbsp;<br>
+<a target="_blank" href="https://check.torproject.org/?lang=zh_CN">tor测试</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 软件相关<br>
 <br>
