@@ -8,7 +8,7 @@
 <a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Agent79733.shtml?t=dd20160201" target="_blank">777代理</a>&nbsp;&nbsp;</a><br>
 <br>
 <a href="http://52.74.222.142:8205/sscut78205f/user/login.html.auth" target="_blank">737会员</a>&nbsp;&nbsp;
-<a href="http://52.74.222.142:8205/sscut78205a/account/login.html.auth" target="_blank">737代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8205/sscut78205a/account/login.html.auth" target="_blank">737代理</a>&nbsp;&nbsp;
 <a href="http://52.74.222.142:8210/sscza944851f/user/login.html.auth" target="_blank">799会员</a>&nbsp;&nbsp;
 <a href="http://52.74.222.142:8210/sscza944851a/account/login.html.auth" target="_blank">799代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
