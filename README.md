@@ -14,7 +14,7 @@
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
-<a href="https://dd5883.ju11.net" target="_blank">九卅现金网</a>&nbsp;&nbsp;
+<a href="http://dd5883.ju11.net" target="_blank">九卅现金网</a>&nbsp;&nbsp;
 
 <br>
 <br>
