@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：新增SK2线路)<br>
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：新增377,399线路)<br>
 <br>
 <a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">112会员</a>&nbsp;&nbsp;
 <a href="http://52.192.200.16:7211/jini32990a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;
@@ -6,6 +6,11 @@
 <a href="http://52.74.213.211:7219/msrtp53818a/account/login.html" target="_blank">177代理</a>&nbsp;&nbsp;
 <a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Member79733.shtml?t=dd20160201" target="_blank">777会员</a>&nbsp;&nbsp;
 <a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Agent79733.shtml?t=dd20160201" target="_blank">777代理</a>&nbsp;&nbsp;</a><br>
+<br>
+<a href="http://52.74.222.142:8210/ssghy45621f/user/login.html.auth" target="_blank">377会员</a>&nbsp;&nbsp;
+<a href="http://52.74.222.142:8210/ssghy45621a/account/login.html.auth" target="_blank">377代理</a>&nbsp;&nbsp;
+<a href="hhttp://52.74.222.142:8208/ssxfr49812f/user/login.html.auth" target="_blank">399会员</a>&nbsp;&nbsp;
+<a href="http://52.74.222.142:8208/ssxfr49812a/account/login.html.auth" target="_blank">399代理</a>&nbsp;&nbsp;<br>
 <br>
 <a href="http://52.74.222.142:8205/sscut78205f/user/login.html.auth" target="_blank">737会员</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8205/sscut78205a/account/login.html.auth" target="_blank">737代理</a>&nbsp;&nbsp;
@@ -18,7 +23,7 @@
 <a href="http://ag.tc111.net" target="_blank">九卅代理</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;&nbsp;112:20360&nbsp;&nbsp;&nbsp;177:29353&nbsp;&nbsp;&nbsp;737:52850&nbsp;&nbsp;&nbsp;799:32919<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;112:20360&nbsp;&nbsp;77:29353&nbsp;&nbsp;737:52850&nbsp;&nbsp;799:32919&nbsp;&nbsp;377:38561&nbsp;&nbsp;399:92661<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://1.bb5522.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
