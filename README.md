@@ -9,7 +9,7 @@
 <br>
 <a href="http://52.74.222.142:8210/ssghy45621f/user/login.html.auth" target="_blank">377会员</a>&nbsp;&nbsp;
 <a href="http://52.74.222.142:8210/ssghy45621a/account/login.html.auth" target="_blank">377代理</a>&nbsp;&nbsp;
-<a href="hhttp://52.74.222.142:8208/ssxfr49812f/user/login.html.auth" target="_blank">399会员</a>&nbsp;&nbsp;
+<a href="http://52.74.222.142:8208/ssxfr49812f/user/login.html.auth" target="_blank">399会员</a>&nbsp;&nbsp;
 <a href="http://52.74.222.142:8208/ssxfr49812a/account/login.html.auth" target="_blank">399代理</a>&nbsp;&nbsp;<br>
 <br>
 <a href="http://52.74.222.142:8205/sscut78205f/user/login.html.auth" target="_blank">737会员</a>&nbsp;&nbsp;
