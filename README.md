@@ -10,12 +10,7 @@
 <a href="http://52.74.222.142:8210/ssghy45621f/user/login.html.auth" target="_blank">377会员</a>&nbsp;&nbsp;
 <a href="http://52.74.222.142:8210/ssghy45621a/account/login.html.auth" target="_blank">377代理</a>&nbsp;&nbsp;
 <a href="http://52.74.222.142:8208/ssxfr49812f/user/login.html.auth" target="_blank">399会员</a>&nbsp;&nbsp;
-<a href="http://52.74.222.142:8208/ssxfr49812a/account/login.html.auth" target="_blank">399代理</a>&nbsp;&nbsp;<br>
-<br>
-<a href="http://52.74.222.142:8205/sscut78205f/user/login.html.auth" target="_blank">737会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8205/sscut78205a/account/login.html.auth" target="_blank">737代理</a>&nbsp;&nbsp;
-<a href="http://52.74.222.142:8210/sscza944851f/user/login.html.auth" target="_blank">799会员</a>&nbsp;&nbsp;
-<a href="http://52.74.222.142:8210/sscza944851a/account/login.html.auth" target="_blank">799代理</a>&nbsp;&nbsp;
+<a href="http://52.74.222.142:8208/ssxfr49812a/account/login.html.auth" target="_blank">399代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
