@@ -32,7 +32,7 @@
 <a href="http://sf2.16888xyz.link" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf3.16888xyz.link" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf5.16888xyz.link" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
-<a href="52.69.162.4" target="_blank">导航5<br>
+<a href="http://52.69.162.4" target="_blank">导航5<br>
 <br>
 <br>
 赛马网站<br>
