@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：新增高频彩导航5)<br>
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：新增高频彩导航6)<br>
 <br>
 <a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">112会员</a>&nbsp;&nbsp;
 <a href="http://52.192.200.16:7211/jini32990a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;
@@ -32,7 +32,8 @@
 <a href="http://sf2.16888xyz.link" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf3.16888xyz.link" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf5.16888xyz.link" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
-<a href="http://52.69.162.4" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://52.69.162.4" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
+<a href="http://52.77.18.191" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 <br>
 赛马网站<br>
