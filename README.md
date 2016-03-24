@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：更换六合彩导航线路2和3)<br>
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：更新高频彩导航7和8)<br>
 <br>
 <a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">112会员</a>&nbsp;&nbsp;
 <a href="http://52.192.200.16:7211/jini32990a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;
@@ -21,11 +21,13 @@
 彩票导航 <br>验证码>>&nbsp;&nbsp;112:20360&nbsp;&nbsp;177:29353&nbsp;&nbsp;377:01302&nbsp;&nbsp;399:92661<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://a2.yes168.org" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://a3.yes168.org" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://1.bb5522.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://2.bb5522.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://3.bb5522.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://5.bb5522.ws" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
-<a href="http://52.192.200.16" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://52.192.200.16" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
+<a href="http://a2.yes168.org" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
+<a href="http://a3.yes168.org" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 高频彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://sf1.16888xyz.link" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
@@ -33,7 +35,9 @@
 <a href="http://sf3.16888xyz.link" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf5.16888xyz.link" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.69.162.4" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
-<a href="http://52.77.18.191" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://52.77.18.191" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
+<a href="http://a2.ya888.org" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;
+<a href="http://a3.ya888.org" target="_blank">导航8</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 <br>
 赛马网站<br>
