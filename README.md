@@ -15,7 +15,7 @@
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
 <a href="http://ag.tf111.net" target="_blank">九卅代理</a>&nbsp;&nbsp;
-<a href="http://ag.gp88bb.com" target="_blank">GP代理</a>&nbsp;&nbsp;
+<a href="https://ag.gp88bb.com" target="_blank">GP代理</a>&nbsp;&nbsp;
 <br>
 <br>
 彩票导航 <br>验证码>>&nbsp;&nbsp;112:20360&nbsp;&nbsp;177:29353&nbsp;&nbsp;377:01302&nbsp;&nbsp;399:92661<br>
