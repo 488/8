@@ -16,6 +16,8 @@
 <br>
 <a href="http://ag.tf111.net" target="_blank">九卅代理</a>&nbsp;&nbsp;
 <a href="https://ag.gp88bb.com" target="_blank">GP代理</a>&nbsp;&nbsp;
+<a href="http://www2.s1288.net/Landing.aspx?" target="_blank">斗鸡网会员</a>&nbsp;&nbsp;
+<a href="https://ag1.s1288.net/login.aspx" target="_blank">斗鸡网代理</a>&nbsp;&nbsp;
 <br>
 <br>
 彩票导航 <br>验证码>>&nbsp;&nbsp;112:20360&nbsp;&nbsp;177:29353&nbsp;&nbsp;377:01302&nbsp;&nbsp;399:92661<br>
