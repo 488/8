@@ -23,7 +23,7 @@
 彩票导航 <br>验证码>>&nbsp;&nbsp;112:20360&nbsp;&nbsp;177:29353&nbsp;&nbsp;377:01302&nbsp;&nbsp;399:92661<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://1.bb5522.ws" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://2.bb5522.ws" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://3.bb5522.ws" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://5.bb5522.ws" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
@@ -32,7 +32,7 @@
 <a href="http://a3.yes168.org" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 高频彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://sf1.16888xyz.link" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf2.16888xyz.link" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf3.16888xyz.link" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf5.16888xyz.link" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
