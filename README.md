@@ -31,7 +31,7 @@
 <a href="http://a2.yes168.org" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
 <a href="http://a3.yes168.org" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
-高频彩>>&nbsp;&nbsp;&nbsp;
+时时彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf2.16888xyz.link" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf3.16888xyz.link" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
