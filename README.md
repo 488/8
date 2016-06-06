@@ -7,10 +7,10 @@
 <a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Memb5er79733.shtml?t=dd20160201" target="_blank">777会员</a>&nbsp;&nbsp;
 <a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Agent79733.shtml?t=dd20160201" target="_blank">777代理</a>&nbsp;&nbsp;<br>
 <br>
-<a href="http://52.74.222.142:8210/ssghy456211f/user/login.html.auth" target="_blank">377会员</a>&nbsp;&nbsp;
-<a href="http://52.74.222.142:8210/ssghy456211a/account/login.html.auth" target="_blank">377代理</a>&nbsp;&nbsp;
-<a href="http://52.74.222.142:8208/ssxfr49812f/user/login.html.auth" target="_blank">399会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8208/ssxfr49812a/account/login.html.auth" target="_blank">399代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy4562111f/user/login.html.auth" target="_blank">537会员</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy4562111a/account/login.html.auth" target="_blank">537代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8208/ssxfr498121f/user/login.html.auth" target="_blank">539会员</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8208/ssxfr498121a/account/login.html.auth" target="_blank">539代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
