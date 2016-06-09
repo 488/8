@@ -20,7 +20,7 @@
 <a href="https://ag1.s1288.net/login.aspx" target="_blank">斗鸡网代理</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;112:20360&nbsp;&nbsp;177:29353&nbsp;&nbsp;537:61829&nbsp;&nbsp;539:01861<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;112:20360&nbsp;&nbsp;177:29353&nbsp;&nbsp;Y77:61829&nbsp;&nbsp;Y39:01861<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
