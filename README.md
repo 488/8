@@ -7,10 +7,10 @@
 <a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Memb5er79733.shtml?t=dd20160201" target="_blank">777会员</a>&nbsp;&nbsp;
 <a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Agent79733.shtml?t=dd20160201" target="_blank">777代理</a>&nbsp;&nbsp;<br>
 <br>
-<a href="http://52.68.32.109:8210/ssghy4562111f/user/login.html.auth" target="_blank">537会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8210/ssghy4562111a/account/login.html.auth" target="_blank">537代理</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8208/ssxfr498121f/user/login.html.auth" target="_blank">539会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8208/ssxfr498121a/account/login.html.auth" target="_blank">539代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy4562111f/user/login.html.auth" target="_blank">Y77会员</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy4562111a/account/login.html.auth" target="_blank">Y77代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8208/ssxfr498121f/user/login.html.auth" target="_blank">Y39会员</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8208/ssxfr498121a/account/login.html.auth" target="_blank">Y39代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
@@ -59,14 +59,6 @@
 <a href="http://ff95.net" target="_blank">AA4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://www.racing.aastar.net" target="_blank">AA5</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
-<a href="http://www.fy2668.com" target="_blank">富城会员1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.fs2668.com" target="_blank">富城会员2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.fs2668.net" target="_blank">富城会员3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.fy2668.net" target="_blank">富城会员4</a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.fy2668.com/aaa" target="_blank">富城代理1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.fy2668.net/aaa" target="_blank">富城代理2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.fs2668.com/aaa" target="_blank">富城代理3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.fs2668.net/aaa" target="_blank">富城代理4</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 足球网站<br>
 <br>
