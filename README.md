@@ -1,7 +1,7 @@
 <p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：112新安全码：30092)<br>
 <br>
-<a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">112会员</a>&nbsp;&nbsp;
-<a href="http://52.69.233.115:7211/jini32990a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;
+<a href="http://52.74.213.211:7211/jini32993f/user/login.html" target="_blank">112会员</a>&nbsp;&nbsp;
+<a href="http://52.74.213.211:7211/jini32993a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818a/account/login.html" target="_blank">177代理</a>&nbsp;&nbsp;
 <a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Memb5er79733.shtml?t=dd20160201" target="_blank">777会员</a>&nbsp;&nbsp;
