@@ -4,8 +4,8 @@
 <a href="http://52.74.213.211:7211/jini32993a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818a/account/login.html" target="_blank">177代理</a>&nbsp;&nbsp;
-<a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Memb5er79733.shtml?t=dd20160201" target="_blank">777会员</a>&nbsp;&nbsp;
-<a href="http://imgnn01.ly-cdn.com/home/FasterLineToHtml/Agent79733.shtml?t=dd20160201" target="_blank">777代理</a>&nbsp;&nbsp;<br>
+<a href="http://xs23.1114458.com/?siteid=2" target="_blank">华盈</a>&nbsp;&nbsp;
+<a href="xs23.17vvs.com" target="_blank">华盈</a>&nbsp;&nbsp;<br>
 <br>
 <a href="http://52.68.32.109:8210/ssghy4562111f/user/login.html.auth" target="_blank">Y77会员</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8210/ssghy4562111a/account/login.html.auth" target="_blank">Y77代理</a>&nbsp;&nbsp;
