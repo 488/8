@@ -20,7 +20,7 @@
 <a href="https://ag.gp88bb.com" target="_blank">GP代理</a>&nbsp;&nbsp;
 <a href="http://www2.s1288.net/Landing.aspx?" target="_blank">斗鸡网会员</a>&nbsp;&nbsp;
 <a href="https://ag1.s1288.net/login.aspx" target="_blank">斗鸡网代理</a>&nbsp;&nbsp;
-<a href="http://www.m8online.net/Default6.aspx?r=" target="_blank">M8会员</a>&nbsp;&nbsp;
+
 <br>
 <br>
 彩票导航 <br>验证码>>&nbsp;&nbsp;112:30092&nbsp;&nbsp;177:29353&nbsp;&nbsp;Y77:61829&nbsp;&nbsp;Y39:01861<br>
@@ -93,7 +93,13 @@
 M8<br>
 <br>
 <a href="http://www.m8online.net/Default6.aspx?r=" target="_blank">M8会员 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://ag.m8bets.net/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.m8bet.net" target="_blank">M8会员 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.m8clicks.com" target="_blank">M8会员 </a>&nbsp;&nbsp;&nbsp;
+<a href="http:// www.m8m8bet.com" target="_blank">M8会员 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.mywinday.com/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://ag.mywinday.com/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://ag.m8clicks.com/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://m8agent.com/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 皇冠客服：+852  5808  0023&nbsp;&nbsp;+852  5808  0699
