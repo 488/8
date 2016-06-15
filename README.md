@@ -89,6 +89,9 @@
 <a href="https://old.hg0088.com" target="_blank">旧帐3</a>&nbsp; &nbsp; &nbsp;
 <a href="https://old.hg0188.com" target="_blank">旧帐4</a>&nbsp; &nbsp; &nbsp;
 <a href="http://www.433.com/lastnewurl/index" target="_blank">目前最新网址 </a>&nbsp;&nbsp;&nbsp;<br>
+M8
+<a href="http://www.m8online.net/Default6.aspx?r=" target="_blank">M8会员 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://ag.m8bets.net/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
 <br>
 皇冠客服：+852  5808  0023&nbsp;&nbsp;+852  5808  0699
 &nbsp;&nbsp;+63 915 195 0193&nbsp;&nbsp;&nbsp;+63 915 195 5533<br>
