@@ -7,7 +7,7 @@
 <a href="http://qz28.1114458.com/?siteid=2" target="_blank">华盈</a>&nbsp;&nbsp;
 <a href="http://qz28.17vvs.com/" target="_blank">华盈</a>&nbsp;&nbsp;
 <a href="http://qz28.18vvs.com/" target="_blank">华盈</a>&nbsp;&nbsp;
-<a href="http://qz28.1114468.com/" target="_blank">华盈</a>&nbsp;&nbsp;
+<a href="http://qz28.1114468.com/?siteid=2" target="_blank">华盈</a>&nbsp;&nbsp;
 <br>
 <br>
 <a href="http://52.68.32.109:8210/ssghy4562111f/user/login.html.auth" target="_blank">Y77会员</a>&nbsp;&nbsp;
