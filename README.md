@@ -1,7 +1,7 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：112新安全码：30092)<br>
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：117新安全码：30092)<br>
 <br>
-<a href="http://52.74.213.211:7211/jini32993f/user/login.html" target="_blank">112会员</a>&nbsp;&nbsp;
-<a href="http://52.74.213.211:7211/jini32993a/account/login.html" target="_blank">112代理</a>&nbsp;&nbsp;
+<a href="http://52.74.213.211:7211/jini32993f/user/login.html" target="_blank">117会员</a>&nbsp;&nbsp;
+<a href="http://52.74.213.211:7211/jini32993a/account/login.html" target="_blank">117代理</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818a/account/login.html" target="_blank">177代理</a>&nbsp;&nbsp;
 <a href="http://qz28.1114458.com/?siteid=2" target="_blank">华盈</a>&nbsp;&nbsp;
@@ -24,7 +24,7 @@
 
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;112:30092&nbsp;&nbsp;177:29353&nbsp;&nbsp;Y77:61829&nbsp;&nbsp;Y39:01861<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;117:30092&nbsp;&nbsp;177:29353&nbsp;&nbsp;Y77:61829&nbsp;&nbsp;Y39:01861<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
