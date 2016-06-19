@@ -4,10 +4,10 @@
 <a href="http://52.74.213.211:7211/jini32993a/account/login.html" target="_blank">117代理</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818a/account/login.html" target="_blank">177代理</a>&nbsp;&nbsp;
-<a href="http://qz28.1114458.com/?siteid=2" target="_blank">华盈</a>&nbsp;&nbsp;
-<a href="http://qz28.17vvs.com/" target="_blank">华盈</a>&nbsp;&nbsp;
-<a href="http://qz28.18vvs.com/" target="_blank">华盈</a>&nbsp;&nbsp;
-<a href="http://qz28.1114468.com/?siteid=2" target="_blank">华盈</a>&nbsp;&nbsp;
+<a href="http://w2.uk563.com/" target="_blank">华盈会员</a>&nbsp;&nbsp;
+<a href="http://w1.uk563.com/" target="_blank">华盈会员</a>&nbsp;&nbsp;
+<a href="http://g2.uk563.com/" target="_blank">华盈代理</a>&nbsp;&nbsp;
+<a href="http://g1.uk563.com/" target="_blank">华盈代理</a>&nbsp;&nbsp;
 <br>
 <br>
 <a href="http://52.68.32.109:8210/ssghy4562111f/user/login.html.auth" target="_blank">Y77会员</a>&nbsp;&nbsp;
@@ -27,9 +27,10 @@
 彩票导航 <br>验证码>>&nbsp;&nbsp;117:30092&nbsp;&nbsp;177:29353&nbsp;&nbsp;Y77:61829&nbsp;&nbsp;Y39:01861<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://xs23.9077888.com" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://xs23.1118666.com" target="_blank">华盈导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://xs23.qq1100.com" target="_blank">华盈导航3</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://qz28.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://qz28.17vvs.com/" target="_blank">华盈导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://qz28.18vvs.com/" target="_blank">华盈导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://qz28.1114468.com/?siteid=2" target="_blank">华盈导航4</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
