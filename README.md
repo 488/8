@@ -121,6 +121,8 @@ M8<br>
 <a href="http://11msc.net" target="_blank">申博代理1</a>&nbsp; &nbsp; &nbsp;
 <a href="http://www.83sbet.net" target="_blank">申博代理2</a>&nbsp; &nbsp; &nbsp;<br>
 <br>
+<a href="http://salon36.com" target="_blank">沙龙会员</a> &nbsp; &nbsp; &nbsp;
+<a href="http://salon36.net" target="_blank">沙龙代理</a>&nbsp; &nbsp; &nbsp;
 <a href="http://sa36.com" target="_blank">沙龙会员</a> &nbsp; &nbsp; &nbsp;
 <a href="http://sa36.net" target="_blank">沙龙代理</a>&nbsp; &nbsp; &nbsp;<br>
 
