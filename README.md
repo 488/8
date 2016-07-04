@@ -10,8 +10,8 @@
 <a href="http://g1.uk563.com/" target="_blank">华盈代理</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://52.68.32.109:8210/ssghy4562111f/user/login.html.auth" target="_blank">Y77会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8210/ssghy4562111a/account/login.html.auth" target="_blank">Y77代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy4562112f/user/login.html.auth" target="_blank">A777会员</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy4562112a/account/login.html.auth" target="_blank">A777代理</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr498121f/user/login.html.auth" target="_blank">Y39会员</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr498121a/account/login.html.auth" target="_blank">Y39代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
@@ -24,7 +24,7 @@
 
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;117:30092&nbsp;&nbsp;177:29353&nbsp;&nbsp;Y77:61829&nbsp;&nbsp;Y39:01861<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;117:30092&nbsp;&nbsp;177:29353&nbsp;&nbsp;A777:26906&nbsp;&nbsp;Y39:01861<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://qz28.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
