@@ -1,5 +1,9 @@
 <p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：Y77改名为A777）<br>
 <br>
+<a href="http://dd52132.td111.net" target="_blank">九卅现金网</a>&nbsp;&nbsp;
+<a href="http://ga3993.com" target="_blank">龙胜现金网</a>&nbsp;&nbsp;
+<br>
+<br>
 <a href="http://52.74.213.211:7211/jini32993f/user/login.html" target="_blank">117会员</a>&nbsp;&nbsp;
 <a href="http://52.74.213.211:7211/jini32993a/account/login.html" target="_blank">117代理</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;
@@ -17,7 +21,7 @@
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
-<a href="http://ag.tf111.net" target="_blank">九卅代理</a>&nbsp;&nbsp;
+<a href="http://ag.td111.net" target="_blank">九代理</a>&nbsp;&nbsp;
 <a href="https://ag.gp88bb.com" target="_blank">GP代理</a>&nbsp;&nbsp;
 <a href="http://www2.s1288.net/Landing.aspx?" target="_blank">斗鸡网会员</a>&nbsp;&nbsp;
 <a href="https://ag1.s1288.net/login.aspx" target="_blank">斗鸡网代理</a>&nbsp;&nbsp;
