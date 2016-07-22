@@ -31,10 +31,10 @@
 彩票导航 <br>验证码>>&nbsp;&nbsp;117:30092&nbsp;&nbsp;177:29353&nbsp;&nbsp;A777:26906&nbsp;&nbsp;Y39:01861<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://qz28.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://qz28.17vvs.com/" target="_blank">华盈导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://qz28.18vvs.com/" target="_blank">华盈导航3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://qz28.1114468.com/?siteid=2" target="_blank">华盈导航4</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://wk18.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://wk18.17vvs.com/" target="_blank">华盈导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://wk18.18vvs.com/" target="_blank">华盈导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://wk18.1114468.com/?siteid=2" target="_blank">华盈导航4</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
