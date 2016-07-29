@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：A777改名YY7'华盈导航网址已更换。）<br>
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：“华盈”改名“达盛”，华盈导航网址已更换。）<br>
 <br>
 <a href="http://dd52132.td111.net" target="_blank">九卅现金网</a>&nbsp;&nbsp;
 <a href="http://ga3993.com" target="_blank">龙胜现金网</a>&nbsp;&nbsp;
@@ -9,7 +9,7 @@
 <a href="http://52.69.233.115:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818a/account/login.html" target="_blank">177代理</a>&nbsp;&nbsp;
 <a href="http://w88.el2260.bk133.com/" target="_blank">华盈会员</a>&nbsp;&nbsp;
-
+盈
 <a href="http://g88.el2260.bk133.com/" target="_blank">华盈代理</a>&nbsp;&nbsp;
 
 <br>
