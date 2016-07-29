@@ -34,7 +34,7 @@
 <a href="http://yk8.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://yk8.17vvs.com/" target="_blank">华盈导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://yk8.18vvs.com/" target="_blank">华盈导航3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://yk8yk8.1114468.com/?siteid=2" target="_blank">华盈导航4</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://yk8.1114468.com/?siteid=2" target="_blank">华盈导航4</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
