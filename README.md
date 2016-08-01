@@ -28,7 +28,7 @@
 
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;117:30092&nbsp;&nbsp;177:29353&nbsp;&nbsp;YY7:03282&nbsp;&nbsp;Y39:01861<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;117:13326&nbsp;&nbsp;177:29353&nbsp;&nbsp;YY7:03282&nbsp;&nbsp;Y39:01861<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://yk8.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
