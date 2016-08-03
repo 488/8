@@ -14,8 +14,8 @@
 
 <br>
 <br>
-<a href="http://52.68.32.109:8210/ssghy4562155f/user/login.html.auth" target="_blank">YY7会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8210/ssghy4562155a/account/login.html.auth" target="_blank">YY7代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy45621552f/user/login.html.auth" target="_blank">A77会员</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy45621552a/account/login.html.auth" target="_blank">A77代理</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr498121f/user/login.html.auth" target="_blank">Y39会员</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr498121a/account/login.html.auth" target="_blank">Y39代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
