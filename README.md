@@ -4,8 +4,8 @@
 <a href="http://ga3993.com" target="_blank">龙胜现金网</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://52.74.213.211:7211/jini32993f/user/login.html" target="_blank">117会员</a>&nbsp;&nbsp;
-<a href="http://52.74.213.211:7211/jini32993a/account/login.html" target="_blank">117代理</a>&nbsp;&nbsp;
+<a href="http://52.69.233.115:7211/jini32990f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
+<a href="http://52.69.233.115:7211/jini32990a/account/login.html" target="_blank">K7代理</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818a/account/login.html" target="_blank">177代理</a>&nbsp;&nbsp;
 <a href="http://w2.l3v7.com/" target="_blank">达盛会员</a>&nbsp;&nbsp;
