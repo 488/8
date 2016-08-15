@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：“A77新验证码：82081”，YY7改名A77。）<br>
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：“A77新验证码：82081）<br>
 <br>
 <a href="http://dd52132.td111.net" target="_blank">九卅现金网</a>&nbsp;&nbsp;
 <a href="http://ga3993.com" target="_blank">龙胜现金网</a>&nbsp;&nbsp;
@@ -14,8 +14,8 @@
 
 <br>
 <br>
-<a href="http://52.68.32.109:8210/ssghy45621552f/user/login.html.auth" target="_blank">A77会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8210/ssghy45621552a/account/login.html.auth" target="_blank">A77代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy45621511f/user/login.html.auth" target="_blank">A77会员</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy45621511a/account/login.html.auth" target="_blank">A77代理</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr498121f/user/login.html.auth" target="_blank">Y39会员</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr498121a/account/login.html.auth" target="_blank">Y39代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
