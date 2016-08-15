@@ -113,6 +113,15 @@ M8<br>
 <a href="http://m8agent.com/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
+新腾讯<br>
+<br>
+<a href="http://xtx2288.com/ target="_blank">新腾讯会员 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://xtx3388.com/ target="_blank">新腾讯会员 </a>&nbsp;&nbsp;&nbsp;
+<a href="https://xtx2288.com/ target="_blank">新腾讯代理 </a>&nbsp;&nbsp;&nbsp;
+<a href="https://xtx3388.com/ target="_blank">新腾讯代理 </a>&nbsp;&nbsp;&nbsp;
+
+<br>
+<br>
 皇冠客服：+852  5808  0023&nbsp;&nbsp;+852  5808  0699
 &nbsp;&nbsp;+63 915 195 0193&nbsp;&nbsp;&nbsp;+63 915 195 5533<br>
 电子邮箱：royal888crown@hotmail.com
