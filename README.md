@@ -1,6 +1,6 @@
 <p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：“A77新验证码：82081）<br>
 <br>
-<a href="http://dd52132.td111.net" target="_blank">九卅现金网</a>&nbsp;&nbsp;
+<a href="http://dd52132.bd135.net" target="_blank">九卅现金网</a>&nbsp;&nbsp;
 <a href="http://ga3993.com" target="_blank">龙胜现金网</a>&nbsp;&nbsp;
 <br>
 <br>
@@ -28,7 +28,7 @@
 
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;K7:13326&nbsp;&nbsp;177:29353&nbsp;&nbsp;A77:36626&nbsp;&nbsp;Y39:01861<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;K7:13326&nbsp;&nbsp;177:29353&nbsp;&nbsp;A77:82081&nbsp;&nbsp;Y39:01861<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://yk8.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
