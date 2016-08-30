@@ -86,8 +86,8 @@
 <a href="http://203.160.140.17/" target="_blank">手机会员3</a>&nbsp; &nbsp; &nbsp;
 <a href="http://180.94.224.117" target="_blank">手机会员4</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
-<a href="https://ag1.hga008.com" target="_blank">代理1</a>&nbsp; &nbsp; &nbsp;
-<a href="https://ag1.hga018.com" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;
+<a href="https://ag.hga008.com" target="_blank">代理1</a>&nsp; &nbsp; &nbsp;
+<a href="https://ag.hga018.com" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;
 <a href="https://112.78.105.24" target="_blank">代理3</a>&nbsp; &nbsp; &nbsp;
 <a href="https://123.255.226.104" target="_blank">代理4</a>&nbsp; &nbsp; &nbsp;
 <a href="https://am.hga008.com" target="_blank">手机代理1</a>&nbsp; &nbsp; &nbsp;
