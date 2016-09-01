@@ -1,10 +1,10 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：达盛导航已更新。）<br>
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：K7，177会员线路航已更新。）<br>
 <br>
 <a href="http://dd52132.bd135.net" target="_blank">九卅现金网</a>&nbsp;&nbsp;
 <a href="http://ga3993.com" target="_blank">龙胜现金网</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://52.74.213.211:7211/jini32990f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
+<a href="http://1.255.41.235:7211/jini329901f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
 <a href="http://52.74.213.211:7211/jini329901a/account/login.html" target="_blank">K7代理</a>&nbsp;&nbsp;
 <a href="http://1.255.41.239:7219/msrtp53818f/user/login.html" target="_blank">177会员</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818a/account/login.html" target="_blank">177代理</a>&nbsp;&nbsp;
