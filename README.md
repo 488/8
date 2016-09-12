@@ -32,8 +32,8 @@
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://jh123.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://jh123.17vvs.com/" target="_blank">华盈导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://jh123.18vvs.com/" target="_blank">华盈导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://jh123.1122.im/Index.aspx?classid=&siteid=%e8%be%be%e7%9b%9b/" target="_blank">华盈导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://jh123.qq1100.com/Index.aspx?classid=&siteid=%e8%be%be%e7%9b%9b/" target="_blank">华盈导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://jh123.1114468.com/?siteid=2" target="_blank">华盈导航4</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
