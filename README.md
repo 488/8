@@ -141,7 +141,13 @@ M8<br>
 <a href="http://salon36.net" target="_blank">沙龙代理</a>&nbsp; &nbsp; &nbsp;
 <a href="http://sa36.com" target="_blank">沙龙会员</a> &nbsp; &nbsp; &nbsp;
 <a href="http://sa36.net" target="_blank">沙龙代理</a>&nbsp; &nbsp; &nbsp;<br>
-
+<br>
+<a href="http://salon36.com" target="_blank">皇家会员</a> &nbsp; &nbsp; &nbsp;
+<a href="http://salon36.net" target="_blank">皇家会员</a>&nbsp; &nbsp; &nbsp;
+<a href="http://sa36.com" target="_blank">皇家手机会员</a> &nbsp; &nbsp; &nbsp;
+<a href="http://sa36.net" target="_blank">皇家手机会员</a>&nbsp; &nbsp; &nbsp;
+<a href="http://sa36.com" target="_blank">皇家代理</a> &nbsp; &nbsp; &nbsp;
+<a href="http://sa36.net" target="_blank">皇家代理</a>&nbsp; &nbsp; &nbsp;<br>
 
 　</p>
 其它网站<br>
