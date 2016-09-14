@@ -103,22 +103,22 @@
 <br>
 M8<br>
 <br>
-<a href="http://www.m8online.net/Default6.aspx?r=" target="_blank">M8会员 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.m8bet.net" target="_blank">M8会员 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.m8clicks.com" target="_blank">M8会员 </a>&nbsp;&nbsp;&nbsp;
-<a href="http:// www.m8m8bet.com" target="_blank">M8会员 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.mywinday.com/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://ag.mywinday.com/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://ag.m8clicks.com/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://m8agent.com/Default.aspx?lang=ZH-CN" target="_blank">M8代理 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.m8online.net/Default6.aspx?r=" target="_blank">会员1 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.m8bet.net" target="_blank">会员2 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.m8clicks.com" target="_blank">会员3 </a>&nbsp;&nbsp;&nbsp;
+<a href="http:// www.m8m8bet.com" target="_blank">会员4 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.mywinday.com/Default.aspx?lang=ZH-CN" target="_blank">代理1 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://ag.mywinday.com/Default.aspx?lang=ZH-CN" target="_blank">代理2 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://ag.m8clicks.com/Default.aspx?lang=ZH-CN" target="_blank">代理3 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://m8agent.com/Default.aspx?lang=ZH-CN" target="_blank">代理4 </a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 新腾讯<br>
 <br>
-<a href="http://xtx3388.com/" target="_blank">新腾讯会员 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://xtx3388.com/" target="_blank">新腾讯会员 </a>&nbsp;&nbsp;&nbsp;
-<a href="https://xtx3388.com/" target="_blank">新腾讯代理 </a>&nbsp;&nbsp;&nbsp;
-<a href="https://xtx3388.com/" target="_blank">新腾讯代理 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://xtx3388.com/" target="_blank">会员1 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://xtx3388.com/" target="_blank">会员2 </a>&nbsp;&nbsp;&nbsp;
+<a href="https://xtx3388.com/" target="_blank">代理1</a>&nbsp;&nbsp;&nbsp;
+<a href="https://xtx3388.com/" target="_blank">代理2</a>&nbsp;&nbsp;&nbsp;
 
 <br>
 <br>
