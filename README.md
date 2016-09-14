@@ -151,7 +151,8 @@ M8<br>
 <a href="https://www.live228.com" target="_blank">会员1</a> &nbsp; &nbsp; &nbsp;
 <a href="https://www.live012.com" target="_blank">会员2</a>&nbsp; &nbsp; &nbsp;
 <a href="https://www.live015.com" target="_blank">会员3</a> &nbsp; &nbsp; &nbsp;
-<a href="https://www.live016.com" target="_blank">会员4</a> &nbsp; &nbsp; &nbsp;<br>
+<a href="https://www.live016.com" target="_blank">会员4</a> &nbsp; &nbsp; &nbsp;
+<a href="http://180.94.229.11/" target="_blank">最新网扯</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 <a href="https://m.live228.com" target="_blank">手机会员1</a> &nbsp; &nbsp; &nbsp;
 <a href="https://m.live012.com" target="_blank">手机会员2</a>&nbsp; &nbsp; &nbsp;
@@ -161,7 +162,8 @@ M8<br>
 <a href="https://ag.live228.com" target="_blank">代理1</a> &nbsp; &nbsp; &nbsp;
 <a href="https://ag.live012.com" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;
 <a href="https://ag.live015.com" target="_blank">代理3</a> &nbsp; &nbsp; &nbsp;
-<a href="https://ag.live016.com" target="_blank">代理4</a> &nbsp; &nbsp; &nbsp;<br>
+<a href="https://ag.live016.com" target="_blank">代理4</a> &nbsp; &nbsp; &nbsp;
+<a href="https://228.live228.com" target="_blank">旧帐</a> &nbsp; &nbsp; &nbsp;<br>
 
 　</p>
 其它网站<br>
