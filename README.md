@@ -21,7 +21,7 @@
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
-<a href="http://ag.td111.net" target="_blank">九代理</a>&nbsp;&nbsp;
+<a href="http://ag.td111.net" target="_blank">九卅代理</a>&nbsp;&nbsp;
 <a href="https://ag.gp88bb.com" target="_blank">GP代理</a>&nbsp;&nbsp;
 <a href="http://www2.s1288.net/Landing.aspx?" target="_blank">斗鸡网会员</a>&nbsp;&nbsp;
 <a href="https://ag1.s1288.net/login.aspx" target="_blank">斗鸡网代理</a>&nbsp;&nbsp;
@@ -40,7 +40,9 @@
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.192.200.16" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://a2.yes168.org" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://52.74.228.184" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://52.74.228.184" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
+<a href="http://sf3.16888xyz.link" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
+<a href="http://a3.ya888.org" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 时时彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
