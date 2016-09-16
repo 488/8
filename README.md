@@ -42,7 +42,8 @@
 <a href="http://a2.yes168.org" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.74.228.184" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf3.16888xyz.link" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
-<a href="http://a3.ya888.org" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://a3.ya888.org" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
+<a href="http://a2.ya888.org" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 时时彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
@@ -101,7 +102,7 @@
 <a href="https://old.hga018.com" target="_blank">旧帐2</a>&nbsp; &nbsp; &nbsp;
 <a href="https://old.hg0088.com" target="_blank">旧帐3</a>&nbsp; &nbsp; &nbsp;
 <a href="https://old.hg0188.com" target="_blank">旧帐4</a>&nbsp; &nbsp; &nbsp;
-<a href="http://www.433.com/lastnewurl/index" target="_blank">目前最新网址 </a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://www.433.com/lastnewurl/index" target="_blank">最新网址 </a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 M8<br>
 <br>
