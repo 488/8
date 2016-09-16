@@ -139,7 +139,7 @@ M8<br>
 <a href="http://22psb.com/" target="_blank">会员4</a> &nbsp; &nbsp; &nbsp;
 <a href="http://11msc.net" target="_blank">代理1</a>&nbsp; &nbsp; &nbsp;
 <a href="http://www.83sbet.net" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;
-<a href="http://222scweb.com" target="_blank">申博最新地址</a> &nbsp; &nbsp; &nbsp;<br>
+<a href="http://222scweb.com" target="_blank">最新网址</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 沙龙<br>
 <br>
