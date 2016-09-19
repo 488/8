@@ -187,7 +187,7 @@ M8<br>
 <a target="_blank" href="http://203.160.140.94/tpl/ag/zh-cn/index.html">DNS</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="http://180.94.224.94/tpl/ag/zh-cn/index.html">皇冠DNS</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
-<li>软件相关<br>
+软件相关<br>
 <br>
 <a href="https://www.jianguoyun.com/p/DUd62aoQvfjyBRjvzhU" target="_blank">Windows</a> &nbsp; &nbsp; &nbsp;
 <a href="http://jianguoyun.com/p/DR0Kf_AQvfjyBRj36xA" target="_blank">Android</a> &nbsp; &nbsp; &nbsp;
