@@ -14,7 +14,7 @@
 
 <br>
 <br>
-<a href="http://52.68.32.109:8210/ssghy45621511f/user/login.html.auth" target="_blank">A77会员</a>&nbsp;&nbsp;
+<a href="http://1.255.41.227:8010/ssghy45621511f/user/login.html.auth" target="_blank">A77会员</a>&nbsp;&nbsp;
 <a href="http://1.255.41.250:8210/ssghy45621511a/account/login.html.auth" target="_blank">A77代理</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr498121f/user/login.html.auth" target="_blank">Y39会员</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr498121a/account/login.html.auth" target="_blank">Y39代理</a>&nbsp;&nbsp;
@@ -28,7 +28,7 @@
 
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;K7:13326&nbsp;&nbsp;127:55829&nbsp;&nbsp;A77:82081&nbsp;&nbsp;Y39:01861<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;K7:13326&nbsp;&nbsp;127:55829&nbsp;&nbsp;A77:23902&nbsp;&nbsp;Y39:01861<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://jh123.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
