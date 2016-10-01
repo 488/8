@@ -9,9 +9,9 @@
 <a href="http://52.69.233.115:7219/msrtp53818f/user/login.html" target="_blank">127会员</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818a/account/login.html" target="_blank">127代理</a>&nbsp;&nbsp;
 <a href="http://w88.el2260.gh133.com" target="_blank">达盛会员</a>&nbsp;&nbsp;
-
 <a href="http://g88.el2260.gh133.com" target="_blank">达盛代理</a>&nbsp;&nbsp;
-
+<a href="http://w1.v3t5.com/" target="_blank">银河会员</a>&nbsp;&nbsp;
+<a href="http://g1.v3t5.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
 <br>
 <a href="http://1.255.41.227:8010/ssghy45621511f/user/login.html.auth" target="_blank">A77会员</a>&nbsp;&nbsp;
@@ -33,8 +33,8 @@
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://jh123.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://jh123.1122.im/Index.aspx?classid=&siteid=%e8%be%be%e7%9b%9b/" target="_blank">华盈导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://jh123.qq1100.com/Index.aspx?classid=&siteid=%e8%be%be%e7%9b%9b/" target="_blank">华盈导航3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://jh123.1114468.com/?siteid=2" target="_blank">华盈导航4</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://jh123.qq1100.com/Index.aspx?classid=&siteid=%e8%be%be%e7%9b%9b/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://jh123.1114468.com/?siteid=2" target="_blank">银河导航2</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
