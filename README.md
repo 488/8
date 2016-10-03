@@ -32,7 +32,7 @@
 <a href="http://jh123.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://jh123.1122.im/Index.aspx?classid=&siteid=%e8%be%be%e7%9b%9b/" target="_blank">华盈导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://mm82.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://mm83.1122.im" target="_blank">银河导航2</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://mm82.1122.im" target="_blank">银河导航2</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://0663.us" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
