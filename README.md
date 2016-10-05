@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：A77新验证码：23902）<br>
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：Y39名为：199）<br>
 <br>
 <a href="http://dd52132.bd135.net" target="_blank">九卅现金网</a>&nbsp;&nbsp;
 <a href="http://ga3993.com" target="_blank">龙胜现金网</a>&nbsp;&nbsp;
@@ -14,8 +14,8 @@
 <br>
 <a href="http://1.255.41.227:8010/ssghy45621511f/user/login.html.auth" target="_blank">A77会员</a>&nbsp;&nbsp;
 <a href="http://1.255.41.250:8210/ssghy45621511a/account/login.html.auth" target="_blank">A77代理</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8208/ssxfr498121f/user/login.html.auth" target="_blank">Y39会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8208/ssxfr498121a/account/login.html.auth" target="_blank">Y39代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8208/ssxfr498121f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8208/ssxfr498121a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
@@ -29,8 +29,6 @@
 彩票导航 <br>验证码>>&nbsp;&nbsp;K7:13326&nbsp;&nbsp;127:55829&nbsp;&nbsp;A77:23902&nbsp;&nbsp;Y39:01861<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://jh123.1114458.com/?siteid=2" target="_blank">华盈导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://jh123.1122.im/Index.aspx?classid=&siteid=%e8%be%be%e7%9b%9b/" target="_blank">华盈导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://mm82.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://mm82.1122.im" target="_blank">银河导航2</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
