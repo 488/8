@@ -34,7 +34,7 @@
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://183.60.158.230:8888 " target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://52.192.200.16" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://566u.net:8888" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://a2.yes168.org" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.74.228.184" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf3.16888xyz.link" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
@@ -43,7 +43,7 @@
 <br>
 时时彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://183.60.158.230:8888 " target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://52.79.54.173/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://566u.net:8888" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf3.16888xyz.link" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf5.16888xyz.link" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.69.162.4" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
