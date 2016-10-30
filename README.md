@@ -29,8 +29,8 @@
 彩票导航 <br>验证码>>&nbsp;&nbsp;K7:13326&nbsp;&nbsp;127:55829&nbsp;&nbsp;A77:23902&nbsp;&nbsp;199:05199<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://mm82.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://mm82.1122.im" target="_blank">银河导航2</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://yh11.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://hy11.1122.im" target="_blank">银河导航2</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://183.60.158.230:8888 " target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
