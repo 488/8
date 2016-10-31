@@ -8,8 +8,8 @@
 <a href="http://52.74.213.211:7211/jini329901a/account/login.html" target="_blank">K7代理</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818f/user/login.html" target="_blank">127会员</a>&nbsp;&nbsp;
 <a href="http://52.69.233.115:7219/msrtp53818a/account/login.html" target="_blank">127代理</a>&nbsp;&nbsp;
-<a href="http://w1.v3t5.com/" target="_blank">银河会员</a>&nbsp;&nbsp;
-<a href="http://g1.v3t5.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
+<a href="http://w1.g6x5.com/" target="_blank">银河会员</a>&nbsp;&nbsp;
+<a href="http://g1.g6x5.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
 <br>
 <a href="http://1.255.41.227:8010/ssghy45621511f/user/login.html.auth" target="_blank">A77会员</a>&nbsp;&nbsp;
