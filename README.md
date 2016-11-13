@@ -41,7 +41,7 @@
 <a href="http://52.74.29.22" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf3.16888xyz.link" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://a3.ya888.org" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
-<a href="http://a2.ya888.org" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://3.aa686.net/" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 时时彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://183.60.158.230:8888 " target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
