@@ -40,7 +40,7 @@
 <a href="http://su121.net:666/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.74.29.22" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf3.16888xyz.link" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
-<a href="http://a3.ya888.org" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
+<a href="http://1.c7799.ws" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
 <a href="http://3.aa686.net/" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 时时彩>>&nbsp;&nbsp;&nbsp;
