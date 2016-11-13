@@ -38,7 +38,7 @@
 <a href="http://183.60.158.230:8888 " target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://566u.net:8888" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://su121.net:666/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://52.74.228.184" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
+<a href="http://52.74.29.22" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf3.16888xyz.link" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://a3.ya888.org" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
 <a href="http://a2.ya888.org" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;<br>
