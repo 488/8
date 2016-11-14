@@ -13,9 +13,9 @@
 <br>
 <br>
 <a href="http://52.199.80.50:8010/ssghy45621511f/user/login.html.auth" target="_blank">A77会员</a>&nbsp;&nbsp;
-<a href="http://1.255.41.250:8210/ssghy45621511a/account/login.html.auth" target="_blank">A77代理</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8208/ssxfr498120f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8208/ssxfr498120a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
+<a href="http://52.199.80.50:8210/ssghy45621511a/account/login.html.auth" target="_blank">A77代理</a>&nbsp;&nbsp;
+<a href="http://52.199.80.50:8208/ssxfr498120f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
+<a href="http://52.199.80.50:8208/ssxfr498120a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
@@ -49,8 +49,8 @@
 <a href="http://su121.net:666/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sf5.16888xyz.link" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.69.162.4" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
-<a href="http://52.77.18.191" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
-<a href="http://a2.ya888.org" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;
+<a href="http://52.78.170.33" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
+<a href="http://52.199.80.50" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;
 <a href="http://a3.ya888.org" target="_blank">导航8</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 <br>
