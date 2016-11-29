@@ -116,8 +116,8 @@ M8<br>
 <br>
 新腾讯<br>
 <br>
-<a href="http://xtx2288.com/" target="_blank">会员1 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://xtx3388.com/" target="_blank">会员2 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.xtx2288.com/" target="_blank">会员1 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://xtx2288.com/" target="_blank">会员2 </a>&nbsp;&nbsp;&nbsp;
 <a href="https://xtx2288.com/" target="_blank">代理1</a>&nbsp;&nbsp;&nbsp;
 <a href="https://xtx3388.com/" target="_blank">代理2</a>&nbsp;&nbsp;&nbsp;
 
