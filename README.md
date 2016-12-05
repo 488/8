@@ -1,7 +1,7 @@
 <p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：已更新导航银河）
 <br>
 <br> 
-<a href="http://BA51.JU11.NET" target="_blank"><img src=" http://bb999.net/pic/n/agents/120x180_03cn.gif "></a>
+
 <a href="http://dd52132.ju11.net" target="_blank">九卅现金网1</a>&nbsp;&nbsp;
 <a href="http://dd52132.ju111.net" target="_blank">九卅现金网2</a>&nbsp;&nbsp;
 <a href="http://dd52132.xs11.net" target="_blank">九卅现金网3</a>&nbsp;&nbsp;
@@ -198,6 +198,9 @@ M8<br>
 <a href="http://s.jb51.net/?soft" target="_blank">服务器软件</a> &nbsp; &nbsp; &nbsp;
 
 <br>
+<a href="http://BA51.JU11.NET" target="_blank"> <img src=" http://bb999.net/pic/n/agents/468X60B.gif "></a>
+<a href="http://BA51.JU11.NET" target="_blank" ><img src="http://bb999.net/pic/n/agents/638X58AB.gif" ></a>
+
 <br>
 <li>各大网站电话联系https://github.com/488/9</li>
 <li>如有任何疑问，请发邮件到 <a href="mailto:sw13148@gmail.com">sw13148@gmail.com</a> 咨询和交流。</li>
