@@ -1,7 +1,7 @@
 <p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：已更新导航银河）
 <br>
 <br> 
-<a href="http://BA51.JU11.NET" target="_blank"><img src=" http://bb999.net/pic/n/agents/120x180_03cn.gif "></a>
+<a href="http://dd52132.JU11.NET" target="_blank"><img src=" http://bb999.net/pic/n/agents/120x180_03cn.gif "></a>
 <a href="http://dd52132.ju11.net" target="_blank">九卅现金网1</a>&nbsp;&nbsp;
 <a href="http://dd52132.ju111.net" target="_blank">九卅现金网2</a>&nbsp;&nbsp;
 <a href="http://dd52132.xs11.net" target="_blank">九卅现金网3</a>&nbsp;&nbsp;
