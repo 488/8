@@ -198,8 +198,6 @@ M8<br>
 <a href="http://s.jb51.net/?soft" target="_blank">服务器软件</a> &nbsp; &nbsp; &nbsp;
 
 <br>
-<a href="http://BA51.JU11.NET" target="_blank"> <img src=" http://bb999.net/pic/n/agents/468X60B.gif "></a>
-<a href="http://BA51.JU11.NET" target="_blank" ><img src="http://bb999.net/pic/n/agents/638X58AB.gif" ></a>
 
 <br>
 <li>各大网站电话联系https://github.com/488/9</li>
