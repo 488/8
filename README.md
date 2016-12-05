@@ -1,7 +1,8 @@
 <p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：已更新导航银河）
 <br>
-<a href="http://dd52132.ac135.net" target="_blank">九卅现金网</a>&nbsp;&nbsp;
-<a href="http://ga3993.com" target="_blank">龙胜现金网</a>&nbsp;&nbsp;
+<a href="http://dd52132.ju11.net" target="_blank">九卅现金网1</a>&nbsp;&nbsp;
+<a href="http://dd52132.ju11.net" target="_blank">九卅现金网2</a>&nbsp;&nbsp;
+<a href="http://dd52132.xs11.net" target="_blank">九卅现金网3</a>&nbsp;&nbsp;
 <br>
 <br>
 <a href="http://52.74.29.22:7211/jini329901f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
