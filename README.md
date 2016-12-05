@@ -6,8 +6,8 @@
 <a href="http://dd52132.xs11.net" target="_blank">九卅现金网3</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://ag.ju111.net" target="_blank">九卅代理1</a>&nbsp;&nbsp;
-<a href="http://ag.ju1111.net" target="_blank">九卅代理2</a>&nbsp;&nbsp;
+<a href="http://ag.ju11.net" target="_blank">九卅代理1</a>&nbsp;&nbsp;
+<a href="http://ag.ju111.net" target="_blank">九卅代理2</a>&nbsp;&nbsp;
 <a href="http://ag.xs111.net" target="_blank">九卅代理3</a>&nbsp;&nbsp;<br>
 <br>
 <a href="http://52.74.29.22:7211/jini329901f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
