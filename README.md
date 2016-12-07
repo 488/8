@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：已更新导航银河）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：A77新验证码：01209）
 <br>
 
 
