@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：A77新验证码：01209 ，199新验证码：19528）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：A77,199直达线路已更新）
 <br>
 
 
@@ -25,7 +25,7 @@
 <a href="http://789ddd.cc" target="_blank">工人上岗</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;K7:13326&nbsp;&nbsp;127:55829&nbsp;&nbsp;A77:23902&nbsp;&nbsp;199:05199<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;K7:13326&nbsp;&nbsp;127:55829&nbsp;&nbsp;A77:01209&nbsp;&nbsp;199:19528<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://yh11.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
