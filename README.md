@@ -189,7 +189,7 @@ M8<br>
 <a href="https://www.jianguoyun.com/p/DUd62aoQvfjyBRjvzhU" target="_blank">Windows</a> &nbsp; &nbsp; &nbsp;
 <a href="http://jianguoyun.com/p/DR0Kf_AQvfjyBRj36xA" target="_blank">Android</a> &nbsp; &nbsp; &nbsp;
 <a href="http://s.jb51.net/?soft" target="_blank">服务器软件</a> &nbsp; &nbsp; &nbsp;
-
+<a href="https://www.jianguoyun.com/p/DaAxJfIQvfjyBRin5SI" target="_blank">AnyDesk</a> &nbsp; &nbsp; &nbsp;
 <br>
 
 <br>
