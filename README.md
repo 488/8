@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：A77,199直达线路已更新）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：K7新验证码:83836）
 <br>
 
 
