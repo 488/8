@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：K7新验证码:83836）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：127改名为:SSS）
 <br>
 
 
