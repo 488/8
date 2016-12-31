@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：127改名为:SSS）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：A77新验证码:13262）
 <br>
 
 
