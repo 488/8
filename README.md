@@ -25,7 +25,7 @@
 <a href="http://789ddd.cc" target="_blank">工人上岗</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;K7:83836&nbsp;&nbsp;127:55829&nbsp;&nbsp;A77:01209&nbsp;&nbsp;199:19528<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;K7:83836&nbsp;&nbsp;127:55829&nbsp;&nbsp;A77:13262&nbsp;&nbsp;199:19528<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://yh11.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
