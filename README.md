@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：A77新验证码:13262）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：新增马网:M8）
 <br>
 
 
@@ -64,7 +64,8 @@
 <a href="http://www.ctb988.net/login.jsp?a5e7bfbf-df83-4b9e-9e0f-982bb2cfac3f" target="_blank">长城7</a>&nbsp;&nbsp;&nbsp;
 <a href="http://lkb988.com" target="_blank">长城8</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
-<a href="http://cc59.net" target="_blank">AA1</a>&nbsp;&nbsp;&nbsp; 
+<a href="http://m8128.com" target="_blank">M8</a>&nbsp;&nbsp;&nbsp; 
+<br>
 <a href="http://aa138.net" target="_blank">AA2</a> &nbsp;&nbsp;&nbsp;
 <a href="http://jj08.net" target="_blank">AA3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://ff95.net" target="_blank">AA4</a>&nbsp;&nbsp;&nbsp;
