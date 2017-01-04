@@ -66,14 +66,7 @@
 <br>
 <a href="http://m8128.com" target="_blank">M8</a>&nbsp;&nbsp;&nbsp; 
 <br>
-<br>
-<a href="http://aa138.net" target="_blank">AA2</a> &nbsp;&nbsp;&nbsp;
-<a href="http://jj08.net" target="_blank">AA3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://ff95.net" target="_blank">AA4</a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.racing.aastar.net" target="_blank">AA5</a>&nbsp;&nbsp;&nbsp;<br>
-<br>
-<a href="http://www.a3odds.net" target="_blank">定彩会员</a>&nbsp;&nbsp;&nbsp;
-<a href="http://ag.a3odds.net" target="_blank">定彩代理</a>&nbsp;&nbsp;&nbsp;<br>
+
 <br>
 <br>
 足球网站<br>
