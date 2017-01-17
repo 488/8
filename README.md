@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：A77改名为:717）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：717新验证码：52331）
 <br>
 
 
