@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：717新验证码：52331）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：SSS新验证码：63336）
 <br>
 
 
