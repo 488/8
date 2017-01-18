@@ -65,6 +65,7 @@
 <a href="http://lkb988.com" target="_blank">长城8</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 <a href="http://m8128.com" target="_blank">M8</a>&nbsp;&nbsp;&nbsp; 
+<a href="http://m8128.net" target="_blank">M8</a>&nbsp;&nbsp;&nbsp;
 <br>
 
 <br>
