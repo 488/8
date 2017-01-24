@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：SSS新验证码：63336）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：717改名为:7A7）
 <br>
 
 
@@ -12,8 +12,8 @@
 <a href="http://g3.g6x5.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://52.68.32.109:8210/ssghy36159f/user/login.html.auth" target="_blank">717会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8210/ssghy36159a/account/login.html.auth" target="_blank">717代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy36159f/user/login.html.auth" target="_blank">7A7会员</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy36159a/account/login.html.auth" target="_blank">7A7代理</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr4981209f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr4981209a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
@@ -25,7 +25,7 @@
 <a href="http://789ddd.cc" target="_blank">工人上岗</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;K7:83836&nbsp;&nbsp;SSS:63336&nbsp;&nbsp;717:52331&nbsp;&nbsp;199:19528<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;K7:83836&nbsp;&nbsp;SSS:63336&nbsp;&nbsp;7A7:52331&nbsp;&nbsp;199:19528<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://yh11.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
