@@ -22,7 +22,7 @@
 <a href="https://ag.gp88bb.com" target="_blank">GP代理</a>&nbsp;&nbsp;
 <a href="http://www2.s1288.net/Landing.aspx?" target="_blank">斗鸡网会员</a>&nbsp;&nbsp;
 <a href="https://ag1.s1288.net/login.aspx" target="_blank">斗鸡网代理</a>&nbsp;&nbsp;
-<a href="http://789ddd.cc" target="_blank">工人上岗</a>&nbsp;&nbsp;
+<a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <br>
 <br>
 彩票导航 <br>验证码>>&nbsp;&nbsp;K7:83836&nbsp;&nbsp;SSS:63336&nbsp;&nbsp;7A7:52331&nbsp;&nbsp;199:19528<br>
