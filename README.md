@@ -30,8 +30,8 @@
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://yh11.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://hy11.qq1122.im" target="_blank">银河导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://hy11.17vvs.com" target="_blank">银河导航3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://hy11.3508833.com" target="_blank">银河导航4</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="" target="_blank">银河导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="" target="_blank">银河导航4</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://183.60.158.230:8888 " target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
