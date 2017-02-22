@@ -12,8 +12,8 @@
 <a href="http://g3.g6x5.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://52.68.32.109:8210/ssghy36159f/user/login.html.auth" target="_blank">7A7会员</a>&nbsp;&nbsp;
-<a href="http://52.68.32.109:8210/ssghy36159a/account/login.html.auth" target="_blank">7A7代理</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy36159f/user/login.html.auth" target="_blank">A3会员</a>&nbsp;&nbsp;
+<a href="http://52.68.32.109:8210/ssghy36159a/account/login.html.auth" target="_blank">A3代理</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr4981209f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
 <a href="http://52.68.32.109:8208/ssxfr4981209a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
