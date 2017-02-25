@@ -6,8 +6,8 @@
 <br>
 <a href="http://52.74.29.22:7211/jini329901f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
 <a href="http://52.74.29.22:7211/jini329901a/account/login.html" target="_blank">K7代理</a>&nbsp;&nbsp;
-<a href="http://52.74.29.22:7219/msrtp53818f/user/login.html" target="_blank">SSS会员</a>&nbsp;&nbsp;
-<a href="http://52.74.29.22:7219/msrtp53818a/account/login.html" target="_blank">SSS代理</a>&nbsp;&nbsp;
+<a href="http://52.74.29.22:7019/msrtp538182f/user/login.html" target="_blank">SSS会员</a>&nbsp;&nbsp;
+<a href="http://52.74.29.22:7019/msrtp538182a/account/login.html" target="_blank">SSS代理</a>&nbsp;&nbsp;
 <a href="http://w3.g6x5.com/" target="_blank">银河会员</a>&nbsp;&nbsp;
 <a href="http://g3.g6x5.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
