@@ -4,6 +4,8 @@
 
 
 <br>
+<a href="http://52.199.82.55:7002/epmqa39103f/user/login.html" target="_blank">万里会员</a>&nbsp;&nbsp;
+<a href="http://52.199.82.55:7002/epmqa39103a/account/login.html" target="_blank">万里代理</a>&nbsp;&nbsp;
 <a href="http://52.74.29.22:7211/jini329901f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
 <a href="http://52.74.29.22:7211/jini329901a/account/login.html" target="_blank">K7代理</a>&nbsp;&nbsp;
 <a href="http://52.199.82.55:7019/msrtp538182f/user/login.html" target="_blank">SSS会员</a>&nbsp;&nbsp;
@@ -25,7 +27,7 @@
 <a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 <br>验证码>>&nbsp;&nbsp;K7:83836&nbsp;&nbsp;SSS:06821&nbsp;&nbsp;A3:52331&nbsp;&nbsp;199:19528<br>
+彩票导航 <br>验证码>>&nbsp;&nbsp;万里:55122&nbsp;&nbsp;K7:83836&nbsp;&nbsp;SSS:06821&nbsp;&nbsp;A3:52331&nbsp;&nbsp;199:19528<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://yh11.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
