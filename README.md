@@ -1,4 +1,4 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：银河网址w1可改w2,w3,w5,w6,w9.g6x5.com代理同理。）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：新增"万里"六合彩网.）
 <br>
 
 
