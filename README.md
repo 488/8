@@ -1,9 +1,9 @@
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：新增"万里"六合彩网.）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：新增"万里"六合彩网,高赔率高退水型.）
 <br>
 
 
-
 <br>
+<a href="http://52.199.82.55:7002/epmqa39103f/user/login.html" target="_blank">万里赔率</a>&nbsp;&nbsp;<br>
 <a href="http://52.199.82.55:7002/epmqa39103f/user/login.html" target="_blank">万里会员</a>&nbsp;&nbsp;
 <a href="http://52.199.82.55:7002/epmqa39103a/account/login.html" target="_blank">万里代理</a>&nbsp;&nbsp;
 <a href="http://52.74.29.22:7211/jini329901f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
