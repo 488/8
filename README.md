@@ -1,4 +1,4 @@
-<a href="http://www.tsvbet.com/?intr=125" target="_blank"><img src="https://media.giphy.com/media/bRnHb8CZpO8co/giphy.gif" width="240" height="80" border="0"></a><br>
+<a href="http://www.tsvbet.com/?intr=125" target="_blank"><img src="https://media.giphy.com/media/bRnHb8CZpO8co/giphy.gif" width="240" height="80" border="0"></a>
 <a href="https://my.pcloud.com/publink/show?code=kZ5oRqZPQMHwgp6fzJwBVtSVLLImBSXBOBy#tpl=publicfoldergrid" target="_blank"><img src="https://media.giphy.com/media/4pikC5WX05Zra/giphy.gif" width="240" height="80" border="0"></a><br>
 
 <p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：新增"万里"六合彩网,高赔率高退水型.）
