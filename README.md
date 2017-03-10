@@ -192,7 +192,9 @@ M8<br>
 <a target="_blank" href="http://180.94.224.94/tpl/ag/zh-cn/index.html">皇冠DNS</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 <a target="_blank" href="https://web.whatsapp.com/">whatsapp网页版</a> &nbsp; &nbsp; &nbsp;
-<a target="_blank" href="https://wx.qq.com/">微信网页版</a> &nbsp; &nbsp; &nbsp;<br>
+<a target="_blank" href="https://wx.qq.com/">微信网页版</a> &nbsp; &nbsp; &nbsp;
+<a target="_blank" href="http://nude-atlas.com/blog/index">人体艺术</a> &nbsp; &nbsp; &nbsp;
+<a target="_blank" href="https://wx.qq.com/">视频分享</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 软件相关<br>
 <br>
