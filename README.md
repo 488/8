@@ -27,7 +27,7 @@
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
 <a href="http://aa.luck333.com/" target="_blank">TsvBet代理</a>&nbsp;&nbsp;
-<a href="http://a2.luck333.net/" target="_blank">TsvBet查账</a>&nbsp;&nbsp;
+<a href="http://a2.tsvbet.net/" target="_blank">TsvBet查账</a>&nbsp;&nbsp;
 <a href="https://ag1.s1288.net/login.aspx" target="_blank">斗鸡网代理</a>&nbsp;&nbsp;
 <a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <br>
