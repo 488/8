@@ -21,8 +21,8 @@
 <br>
 <a href="http://54.64.77.232:8010/ssghy361593f/user/login.html.auth" target="_blank">A3会员</a>&nbsp;&nbsp;
 <a href="http://54.64.77.232:8010/ssghy361593a/account/login.html.auth" target="_blank">A3代理</a>&nbsp;&nbsp;
-<a href="http://54.64.77.232:8008/ssxfr4981209f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
-<a href="http://54.64.77.232:8008/ssxfr4981209a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
+<a href="http://52.192.169.212:8008/ssxfr49812094f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
+<a href="http://52.192.169.212:8008/ssxfr49812094a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
