@@ -19,8 +19,8 @@
 <a href="http://g3.g6x5.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://54.64.77.232:8010/ssghy361593f/user/login.html.auth" target="_blank">A3会员</a>&nbsp;&nbsp;
-<a href="http://54.64.77.232:8010/ssghy361593a/account/login.html.auth" target="_blank">A3代理</a>&nbsp;&nbsp;
+<a href="http://54.64.77.232:8010/ssghy361593f/user/login.html.auth" target="_blank">合润会员</a>&nbsp;&nbsp;
+<a href="http://54.64.77.232:8010/ssghy361593a/account/login.html.auth" target="_blank">合润代理</a>&nbsp;&nbsp;
 <a href="http://52.192.169.212:8008/ssxfr49812094f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
 <a href="http://52.192.169.212:8008/ssxfr49812094a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
@@ -33,7 +33,7 @@
 <br>
 <br>
 彩票导航 &nbsp;&nbsp;&nbsp;新的验证码&nbsp;&nbsp;<br>
-<br>验证码>>&nbsp;&nbsp;万里:99905&nbsp;&nbsp;K7:83836&nbsp;&nbsp;SSS:06821&nbsp;&nbsp;A3:00658&nbsp;&nbsp;199:09561<br>
+<br>验证码>>&nbsp;&nbsp;万里:99905&nbsp;&nbsp;K7:83836&nbsp;&nbsp;SSS:06821&nbsp;&nbsp;合润:00658&nbsp;&nbsp;199:09561<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://yh11.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
