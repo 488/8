@@ -33,7 +33,7 @@
 <br>
 <br>
 彩票导航 &nbsp;&nbsp;&nbsp;新的验证码&nbsp;&nbsp;<br>
-<br>验证码>>&nbsp;&nbsp;已经搬迁请与你上线联系。
+<br>验证码>>&nbsp;&nbsp;已经搬迁请与你上线联系。<br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://yh11.qq1100.com/" target="_blank">银河导航1</a>&nbsp;&nbsp;&nbsp;
