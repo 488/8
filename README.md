@@ -8,8 +8,8 @@
 <br>
 <a href="https://my.pcloud.com/publink/show?code=kZ5oRqZPQMHwgp6fzJwBVtSVLLImBSXBOBy#tpl=publicfoldergrid" target="_blank">万里赔率</a>&nbsp;&nbsp;
 <a href="http://www.tsvbet.com/?intr=125" target="_blank">现金网</a>&nbsp;&nbsp;
-<a href="http://s7.p.za1235.com/" target="_blank">333会员</a>&nbsp;&nbsp;
-<a href="http://s7.k.za1235.com/" target="_blank">333代理</a>&nbsp;&nbsp;
+<a href="http://s1.p.ak1798.com/" target="_blank">333会员</a>&nbsp;&nbsp;
+<a href="http://s1.k.ak1798.com/" target="_blank">333代理</a>&nbsp;&nbsp;
 <br>
 <br>
 <a href="http://52.199.82.55:7002/epmqa39103f/user/login.html" target="_blank">万里会员</a>&nbsp;&nbsp;
@@ -40,7 +40,7 @@
 <br>
 时时彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://66bigo.com/" target="_blank">333导航=60333</a>&nbsp;&nbsp;&nbsp;
-<a href="http://sv268.com/" target="_blank">333导航=ak178</a>&nbsp;&nbsp;&nbsp;
+<a href="http://sv268.com/" target="_blank">333导航=ak1798</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
