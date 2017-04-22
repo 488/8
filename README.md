@@ -22,8 +22,8 @@
 <a href="http://g3.g6x5.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://54.64.77.232:8010/ssghy361593f/user/login.html.auth" target="_blank">合润会员</a>&nbsp;&nbsp;
-<a href="http://54.64.77.232:8010/ssghy361593a/account/login.html.auth" target="_blank">合润代理</a>&nbsp;&nbsp;
+<a href="http://pc10.x.sss33.us/ssghy361593f/user/login.html.auth" target="_blank">合润会员</a>&nbsp;&nbsp;
+<a href="http://pc10.x.sss33.us/ssghy361593a/account/login.html.auth" target="_blank">合润代理</a>&nbsp;&nbsp;
 <a href="http://52.192.169.212:8008/ssxfr49812094f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
 <a href="http://52.192.169.212:8008/ssxfr49812094a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
