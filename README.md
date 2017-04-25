@@ -16,8 +16,8 @@
 <a href="http://52.199.82.55:7002/epmqa39103a/account/login.html" target="_blank">万里代理</a>&nbsp;&nbsp;
 <a href="http://52.199.78.125:7211/jini329955f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
 <a href="http://52.199.78.125:7211/jini329955a/account/login.html" target="_blank">K7代理</a>&nbsp;&nbsp;
-<a href="http://52.199.82.55:7019/msrtp538182f/user/login.html" target="_blank">SSS会员</a>&nbsp;&nbsp;
-<a href="http://52.199.82.55:7019/msrtp538182a/account/login.html" target="_blank">SSS代理</a>&nbsp;&nbsp;
+<a href="http://52.220.196.144:7019/msrtp538182f/user/login.html" target="_blank">SSS会员</a>&nbsp;&nbsp;
+<a href="http://52.220.196.144:7019/msrtp538182a/account/login.html" target="_blank">SSS代理</a>&nbsp;&nbsp;
 <a href="http://w3.m886h.com/" target="_blank">银河会员</a>&nbsp;&nbsp;
 <a href="http://g3.m886h.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
