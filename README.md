@@ -22,8 +22,8 @@
 <a href="http://g3.m886h.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://pc10.x.sss33.us/ssghy361593f/user/login.html.auth" target="_blank">合润会员</a>&nbsp;&nbsp;
-<a href="http://pc10.x.sss33.us/ssghy361593a/account/login.html.auth" target="_blank">合润代理</a>&nbsp;&nbsp;
+<a href="http://pc10.sss55.us/ssghy361593f/user/login.html.auth" target="_blank">合润会员</a>&nbsp;&nbsp;
+<a href="http://pc10.sss55.us/ssghy361593a/account/login.html.auth" target="_blank">合润代理</a>&nbsp;&nbsp;
 <a href="http://52.192.169.212:8008/ssxfr49812094f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
 <a href="http://52.192.169.212:8008/ssxfr49812094a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
@@ -61,7 +61,7 @@
 <a href="http://52.220.154.76" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.78.170.33" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.199.80.50" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;
-<a href="http://a3.ya888.org" target="_blank">导航8</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://3.aa1122.ws/" target="_blank">导航8</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
 <br>
 赛马网站<br>
