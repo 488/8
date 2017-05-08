@@ -41,7 +41,7 @@
 彩票>>&nbsp;&nbsp;&nbsp;
 <a href="http://66bigo.com/" target="_blank">333导航=60333</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sv268.com/" target="_blank">333导航=ak1798</a>&nbsp;&nbsp;&nbsp;
-<a href="http://yy23.3508833.com/" target="_blank">导航=ak1798</a>&nbsp;&nbsp;&nbsp;
+<a href="http://yy23.3508833.com/" target="_blank">银河导航</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
@@ -75,11 +75,11 @@
 <a href="http://www.ctb988.net/login.jsp?a5e7bfbf-df83-4b9e-9e0f-982bb2cfac3f" target="_blank">长城7</a>&nbsp;&nbsp;&nbsp;
 <a href="http://lkb988.com" target="_blank">长城8</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
-<a href="http://m8128.com" target="_blank">M8</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="http://m8128.net" target="_blank">M8</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="http://m8128.co" target="_blank">M8</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="http://m8128a.net" target="_blank">M8</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="http://m8128b.net" target="_blank">M8</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="http://m8128.com" target="_blank">万利1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="http://m8128.net" target="_blank">万利2</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="http://m8128.co" target="_blank">万利3</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="http://m8128a.net" target="_blank">万利4</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="http://m8128b.net" target="_blank">万利5</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <br>
 
 <br>
