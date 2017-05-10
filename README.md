@@ -182,8 +182,8 @@ M8<br>
 <a target="_blank" href="http://live5.spbo1.com/">体球网</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="http://www.7m.cn/">7M体育</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="http://www.gooooal.com/">雪缘园</a> &nbsp; &nbsp; &nbsp;
-<a target="_blank" href="http://live.bet007.com/">球探比分</a> &nbsp; &nbsp; &nbsp;
-<a target="_blank" href="http://www.zhcw.com/">中彩網</a> &nbsp; &nbsp; &nbsp;<br>
+<a target="_blank" href="https://streamango.com/">video</a> &nbsp; &nbsp; &nbsp;
+<a target="_blank" href="https://streamcherry.com/">pornvideo</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 <a target="_blank" href="http://www.1396mm.com/">博世界</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="http://www.6hck.com/">六合彩库</a> &nbsp; &nbsp; &nbsp;
