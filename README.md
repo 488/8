@@ -35,13 +35,13 @@
 <a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 &nbsp;&nbsp;&nbsp;新的验证码&nbsp;&nbsp;万里:59931<br>
-<br>验证码>>&nbsp;&nbsp;万里:99905&nbsp;&nbsp;&nbsp;K7:18101&nbsp;&nbsp;&nbsp;SSS:06821&nbsp;&nbsp;&nbsp;合润:00658&nbsp;&nbsp;&nbsp;199:09561<br>
+彩票导航 &nbsp;&nbsp;&nbsp;新的验证码&nbsp;&nbsp;<br>
+<br>验证码>>&nbsp;&nbsp;万里:59931&nbsp;&nbsp;&nbsp;K7:18101&nbsp;&nbsp;&nbsp;SSS:06821&nbsp;&nbsp;&nbsp;合润:00658&nbsp;&nbsp;&nbsp;199:09561<br>
 <br>
 彩票>>&nbsp;&nbsp;&nbsp;
 <a href="http://66bigo.com/" target="_blank">333导航=60333</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sv268.com/" target="_blank">333导航=ak1798</a>&nbsp;&nbsp;&nbsp;
-<a href="http://yy23.3508833.com/" target="_blank">银河导航</a>&nbsp;&nbsp;&nbsp;
+<a href="" target="_blank">银河导航</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
