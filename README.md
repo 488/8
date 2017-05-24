@@ -35,7 +35,7 @@
 <a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 &nbsp;&nbsp;&nbsp;新的验证码&nbsp;&nbsp;<br>
+彩票导航 &nbsp;&nbsp;&nbsp;新的验证码&nbsp;&nbsp;199:95959<br>
 <br>验证码>>&nbsp;&nbsp;万里:59931&nbsp;&nbsp;&nbsp;K7:18101&nbsp;&nbsp;&nbsp;SSS:06821&nbsp;&nbsp;&nbsp;合润:00658&nbsp;&nbsp;&nbsp;199:09561<br>
 <br>
 彩票>>&nbsp;&nbsp;&nbsp;
