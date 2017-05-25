@@ -17,7 +17,7 @@
 <a href="http://52.199.78.125:7211/jini329955f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
 <a href="http://52.199.78.125:7211/jini329955a/account/login.html" target="_blank">K7代理</a>&nbsp;&nbsp;
 <a href="http://52.220.196.144:7219/msrtp538187f/user/login.html" target="_blank">SSS会员</a>&nbsp;&nbsp;
-<a href="http://52.220.196.144:7219/msrtp538182a/account/login.html" target="_blank">SSS代理</a>&nbsp;&nbsp;
+<a href="http://52.220.196.144:7219/msrtp538187a/account/login.html" target="_blank">SSS代理</a>&nbsp;&nbsp;
 <a href="http://w3.m886h.com/" target="_blank">银河会员</a>&nbsp;&nbsp;
 <a href="http://g3.m886h.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
