@@ -16,8 +16,8 @@
 <a href="http://52.199.82.55:7002/epmqa52419a/account/login.html" target="_blank">万里代理</a>&nbsp;&nbsp;
 <a href="http://52.199.78.125:7211/jini329955f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
 <a href="http://52.199.78.125:7211/jini329955a/account/login.html" target="_blank">K7代理</a>&nbsp;&nbsp;
-<a href="http://52.220.196.144:7019/msrtp538182f/user/login.html" target="_blank">SSS会员</a>&nbsp;&nbsp;
-<a href="http://52.220.196.144:7019/msrtp538182a/account/login.html" target="_blank">SSS代理</a>&nbsp;&nbsp;
+<a href="http://52.220.196.144:7219/msrtp538187f/user/login.html" target="_blank">SSS会员</a>&nbsp;&nbsp;
+<a href="http://52.220.196.144:7219/msrtp538182a/account/login.html" target="_blank">SSS代理</a>&nbsp;&nbsp;
 <a href="http://w3.m886h.com/" target="_blank">银河会员</a>&nbsp;&nbsp;
 <a href="http://g3.m886h.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
@@ -36,7 +36,7 @@
 <br>
 <br>
 彩票导航 &nbsp;&nbsp;&nbsp;新的验证码&nbsp;&nbsp;199:95959<br>
-<br>验证码>>&nbsp;&nbsp;万里:59931&nbsp;&nbsp;&nbsp;K7:18101&nbsp;&nbsp;&nbsp;SSS:06821&nbsp;&nbsp;&nbsp;合润:00658&nbsp;&nbsp;&nbsp;199:09561<br>
+<br>验证码>>&nbsp;&nbsp;万里:59931&nbsp;&nbsp;&nbsp;K7:18101&nbsp;&nbsp;&nbsp;SSS:65160&nbsp;&nbsp;&nbsp;合润:00658&nbsp;&nbsp;&nbsp;199:95959<br>
 <br>
 彩票>>&nbsp;&nbsp;&nbsp;
 <a href="http://66bigo.com/" target="_blank">333导航=60333</a>&nbsp;&nbsp;&nbsp;
