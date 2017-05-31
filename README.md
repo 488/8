@@ -111,7 +111,9 @@
 <a href="https://old.hga018.com" target="_blank">旧帐2</a>&nbsp; &nbsp; &nbsp;
 <a href="https://old.hg0088.com" target="_blank">旧帐3</a>&nbsp; &nbsp; &nbsp;
 <a href="https://old.hg0188.com" target="_blank">旧帐4</a>&nbsp; &nbsp; &nbsp;
-<a href="http://www.433.com/lastnewurl/index" target="_blank">最新网址 </a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://www.433.com/lastnewurl/index" target="_blank">最新网址 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://zs111.tsvbet.com/" target="_blank">足球现金网</a>&nbsp;&nbsp;&nbsp;
+<br>
 <br>
 M8<br>
 <br>
@@ -153,7 +155,9 @@ M8<br>
 <a href="http://salon36.com" target="_blank">会员1</a> &nbsp; &nbsp; &nbsp;
 <a href="http://sa36.com" target="_blank">会员2</a> &nbsp; &nbsp; &nbsp;
 <a href="http://salon36.net" target="_blank">代理1</a>&nbsp; &nbsp; &nbsp;
-<a href="http://sa36.net" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;<br>
+<a href="http://sa36.net" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;
+<a href="http://125.tsvbet.com/" target="_blank">娱乐现金网</a>&nbsp;&nbsp;&nbsp;
+<br>
 <br>
 皇家：<br>
 <br>
