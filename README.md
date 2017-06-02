@@ -12,7 +12,7 @@
 <a href="https://my.pcloud.com/publink/show?code=kZIPS3ZTu5t4Gl0Vf4KjEpzELes07ydcWW7" target="_blank">赔率参考</a>&nbsp;&nbsp;
 <a href="https://my.pcloud.com/publink/show?code=kZT1u3ZJSD7Yt5CLPkONDrl6XLafLjnSUCk#tpl=publicfoldergrid" target="_blank">美图欣赏</a>&nbsp;&nbsp;
 <a href="http://pxiagme1.lot5565.net/member/9243lfpmsbfm74vo2t07sr0qhn/Welcome.action" target="_blank">合泰会员</a>&nbsp;&nbsp;
-<a href="http://pxiagme1.lot5565.net/agent/hpv73peagkbu3ince4kr2u53qd/Welcome.action" target="_blank">合泰会员</a>&nbsp;&nbsp;
+<a href="http://pxiagme1.lot5565.net/agent/hpv73peagkbu3ince4kr2u53qd/Welcome.action" target="_blank">合泰代理</a>&nbsp;&nbsp;
 
 <br>
 <br>
