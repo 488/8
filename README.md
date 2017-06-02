@@ -43,7 +43,7 @@
 <br>验证码>>&nbsp;&nbsp;万里:59931&nbsp;&nbsp;&nbsp;K7:18101&nbsp;&nbsp;&nbsp;SSS:65160&nbsp;&nbsp;&nbsp;合润:00658&nbsp;&nbsp;&nbsp;199:95959<br>
 <br>
 彩票>>&nbsp;&nbsp;&nbsp;
-<a href="http://66bigo.com/" target="_blank">合泰导航=748596</a>&nbsp;&nbsp;&nbsp;
+<a href="http://a3688.net/" target="_blank">合泰导航=748596</a>&nbsp;&nbsp;&nbsp;
 <a href="http://66bigo.com/" target="_blank">333导航=60333</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sv268.com/" target="_blank">333导航=ak1798</a>&nbsp;&nbsp;&nbsp;
 <a href="" target="_blank">银河导航</a>&nbsp;&nbsp;&nbsp;
