@@ -11,6 +11,9 @@
 <a href="http://s1.k.ak1798.com/" target="_blank">333代理</a>&nbsp;&nbsp;
 <a href="https://my.pcloud.com/publink/show?code=kZIPS3ZTu5t4Gl0Vf4KjEpzELes07ydcWW7" target="_blank">赔率参考</a>&nbsp;&nbsp;
 <a href="https://my.pcloud.com/publink/show?code=kZT1u3ZJSD7Yt5CLPkONDrl6XLafLjnSUCk#tpl=publicfoldergrid" target="_blank">美图欣赏</a>&nbsp;&nbsp;
+<a href="http://pxiagme1.lot5565.net/member/9243lfpmsbfm74vo2t07sr0qhn/Welcome.action" target="_blank">合泰会员</a>&nbsp;&nbsp;
+<a href="http://pxiagme1.lot5565.net/agent/hpv73peagkbu3ince4kr2u53qd/Welcome.action" target="_blank">合泰会员</a>&nbsp;&nbsp;
+
 <br>
 <br>
 <a href="http://52.199.82.55:7002/epmqa52419f/user/login.html" target="_blank">万里会员</a>&nbsp;&nbsp;
@@ -36,10 +39,11 @@
 <a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 &nbsp;&nbsp;&nbsp;新的验证码&nbsp;&nbsp;199:95959<br>
+彩票导航 &nbsp;&nbsp;&nbsp;新的验证码&nbsp;&nbsp;<br>
 <br>验证码>>&nbsp;&nbsp;万里:59931&nbsp;&nbsp;&nbsp;K7:18101&nbsp;&nbsp;&nbsp;SSS:65160&nbsp;&nbsp;&nbsp;合润:00658&nbsp;&nbsp;&nbsp;199:95959<br>
 <br>
 彩票>>&nbsp;&nbsp;&nbsp;
+<a href="http://66bigo.com/" target="_blank">合泰导航=748596</a>&nbsp;&nbsp;&nbsp;
 <a href="http://66bigo.com/" target="_blank">333导航=60333</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sv268.com/" target="_blank">333导航=ak1798</a>&nbsp;&nbsp;&nbsp;
 <a href="" target="_blank">银河导航</a>&nbsp;&nbsp;&nbsp;
