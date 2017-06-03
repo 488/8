@@ -11,8 +11,8 @@
 <a href="http://s1.k.ak1798.com/" target="_blank">333代理</a>&nbsp;&nbsp;
 <a href="https://my.pcloud.com/publink/show?code=kZIPS3ZTu5t4Gl0Vf4KjEpzELes07ydcWW7" target="_blank">赔率参考</a>&nbsp;&nbsp;
 <a href="https://my.pcloud.com/publink/show?code=kZT1u3ZJSD7Yt5CLPkONDrl6XLafLjnSUCk#tpl=publicfoldergrid" target="_blank">美图欣赏</a>&nbsp;&nbsp;
-<a href="http://pxiagme1.lot5565.net/member/9243lfpmsbfm74vo2t07sr0qhn/Welcome.action" target="_blank">合泰会员</a>&nbsp;&nbsp;
-<a href="http://pxiagme1.lot5565.net/agent/hpv73peagkbu3ince4kr2u53qd/Welcome.action" target="_blank">合泰代理</a>&nbsp;&nbsp;
+<a href="http://pxiagme1.lot5565.net/member/Welcome.action?searchKeyword=748596" target="_blank">合泰会员</a>&nbsp;&nbsp;
+<a href="http://pxiagme1.lot5565.net/agent/Welcome.action?searchKeyword=748596" target="_blank">合泰代理</a>&nbsp;&nbsp;
 
 <br>
 <br>
@@ -28,8 +28,8 @@
 <br>
 <a href="http://pc10.x.sss33.us/ssghy361593f/user/login.html.auth" target="_blank">合润会员</a>&nbsp;&nbsp;
 <a href="http://pc10.x.sss33.us/ssghy361593a/account/login.html.auth" target="_blank">合润代理</a>&nbsp;&nbsp;
-<a href="http://52.192.169.212:8008/ssxfr49812094f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
-<a href="http://52.192.169.212:8008/ssxfr49812094a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
+<a href="http://pc8.x.sss33.us/ssxfr49812035f/user/login.html.auth" target="_blank">199会员</a>&nbsp;&nbsp;
+<a href="http://pc8.x.sss33.us/ssxfr49812035a/account/login.html.auth" target="_blank">199代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
