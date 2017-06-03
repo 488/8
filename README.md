@@ -1,7 +1,7 @@
 <a href="http://125.tsvbet.com/" target="_blank"><img src="https://media.giphy.com/media/mHOMVb2JuPxjW/giphy.gif" width="240" height="80" border="0"></a>
 <a href="https://my.pcloud.com/publink/show?code=kZ5oRqZPQMHwgp6fzJwBVtSVLLImBSXBOBy#tpl=publicfoldergrid" target="_blank"><img src="https://media.giphy.com/media/4pikC5WX05Zra/giphy.gif" width="240" height="80" border="0"></a><br>
 
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：新增"万里"六合彩网,高占成,高级别）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示：现金网支持微信及支付宝充值,提现火速到账。）
 <br>
 
 
