@@ -10,9 +10,8 @@
 <a href="http://s1.p.ak1798.com/" target="_blank">333会员</a>&nbsp;&nbsp;
 <a href="http://s1.k.ak1798.com/" target="_blank">333代理</a>&nbsp;&nbsp;
 <a href="https://my.pcloud.com/publink/show?code=kZIPS3ZTu5t4Gl0Vf4KjEpzELes07ydcWW7" target="_blank">赔率参考</a>&nbsp;&nbsp;
-<a href="https://my.pcloud.com/publink/show?code=kZT1u3ZJSD7Yt5CLPkONDrl6XLafLjnSUCk#tpl=publicfoldergrid" target="_blank">美图欣赏</a>&nbsp;&nbsp;
-<a href="http://pxiagme1.lot5565.net/member/Welcome.action?searchKeyword=748596" target="_blank">合泰会员</a>&nbsp;&nbsp;
-<a href="http://pxiagme1.lot5565.net/agent/Welcome.action?searchKeyword=748596" target="_blank">合泰代理</a>&nbsp;&nbsp;
+<a href="http://pxhagme1.lot5565.net:8089/member/Welcome.action?searchKeyword=748596" target="_blank">合泰会员</a>&nbsp;&nbsp;
+<a href="http://pxhagme1.lot5565.net:8089/agent/Welcome.action?searchKeyword=748596" target="_blank">合泰代理</a>&nbsp;&nbsp;
 
 <br>
 <br>
@@ -213,6 +212,7 @@ M8<br>
 <a target="_blank" href="https://streambin.pl">treambin</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="http://beta.speedtest.net/">speedtest</a> &nbsp; &nbsp; &nbsp;
 <a target="_blank" href="https://bitsend.jp/?setLang=zh-tw">发送文件</a> &nbsp; &nbsp; &nbsp;
+<a href="https://my.pcloud.com/publink/show?code=kZT1u3ZJSD7Yt5CLPkONDrl6XLafLjnSUCk#tpl=publicfoldergrid" target="_blank">美图欣赏</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 软件相关<br>
