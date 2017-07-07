@@ -49,22 +49,22 @@
 <br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://su121.net:8000 " target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://566u.net:8888" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://su121.net:666/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://1.bb5522.ws" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
-<a href="http://1.aa686.net" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
+<a href="http://su121.net:8000 " target="_blank">总导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://mf76.qr68.us/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://mf33.qr62.us/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://acf3.qr68.us/" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
+<a href="http://mf1.aa288.net/" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://1.c7799.ws" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
 <a href="http://3.aa686.net/" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;
 <a href="http://a1.yes168.org/" target="_blank">导航8</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 时时彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://su121.net:8000 " target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://566u.net:8888" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://su121.net:666/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
-<a href="http://52.78.170.33" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
-<a href="http://52.220.154.76" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
+<a href="http://su121.net:8000 " target="_blank">总导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://sf33.qr68.us/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://sf207.qr68.us/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://acf1.qr68.us/" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
+<a href="http://n1.aa288.net/" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.78.170.33" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.199.80.50" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;
 <a href="http://3.aa1122.ws/" target="_blank">导航8</a>&nbsp;&nbsp;&nbsp;<br>
