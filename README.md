@@ -102,7 +102,7 @@
 <a href="http://66.133.87.54/" target="_blank">会员2</a>&nbsp; &nbsp; &nbsp; 
 <a href="http://125.252.69.40/" target="_blank">会员3</a>&nbsp; &nbsp; &nbsp; 
 <a href="http://66.133.87.20/" target="_blank">会员4</a>&nbsp; &nbsp; &nbsp;
-<a href="https://www.jianguoyun.com/p/DQ7yyCMQvfjyBRin_hU" target="_blank">安卓APP</a>&nbsp; &nbsp; &nbsp; 
+<a href="https://yadi.sk/d/yNKtZgZb3MLWbk" target="_blank">皇冠安卓</a>&nbsp; &nbsp; &nbsp; 
 <a href="http://m.hga018.com" target="_blank">手机会员2</a>&nbsp; &nbsp; &nbsp;
 <a href="http://203.160.140.17/" target="_blank">手机会员3</a>&nbsp; &nbsp; &nbsp;
 <a href="http://180.94.224.117" target="_blank">手机会员4</a>&nbsp;&nbsp;&nbsp;<br>
