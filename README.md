@@ -10,7 +10,7 @@
 
 <br>
 <a href="http://125.tsvbet.com/" target="_blank">赛马现金网</a>&nbsp;&nbsp;
-<a href="http://www.xbo200.com?a=53501/" target="_blank">彩票现金网</a>&nbsp;&nbsp;
+<a href="http://www.xbo200.com?a=53501" target="_blank">彩票现金网</a>&nbsp;&nbsp;
 <a href="http://s1.p.ak1798.com/" target="_blank">333会员</a>&nbsp;&nbsp;
 <a href="http://s1.k.ak1798.com/" target="_blank">333代理</a>&nbsp;&nbsp;
 <a href="https://my.pcloud.com/publink/show?code=kZIPS3ZTu5t4Gl0Vf4KjEpzELes07ydcWW7" target="_blank">赔率参考</a>&nbsp;&nbsp;
