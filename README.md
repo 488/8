@@ -1,5 +1,5 @@
 <a href="http://125.tsvbet.com/" target="_blank"><img src="https://media.giphy.com/media/mHOMVb2JuPxjW/giphy.gif" width="240" height="80" border="0"></a>
-<a href="https://my.pcloud.com/publink/show?code=kZ5oRqZPQMHwgp6fzJwBVtSVLLImBSXBOBy#tpl=publicfoldergrid" target="_blank"><img src="https://media.giphy.com/media/4pikC5WX05Zra/giphy.gif" width="240" height="80" border="0"></a><br>
+<a href="http://www.xbo100.com?a=53501" target="_blank"><img src="https://media.giphy.com/media/xUOxfjj9xLwxYuJH4A/giphy.gif" width="240" height="80" border="0"></a><br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://itunes.apple.com/cn/app/whatsapp-messenger/id310633997?mt=8" target="_blank">whatsapp苹果</a>&nbsp;&nbsp;
 <a href="https://itunes.apple.com/cn/app/signal-private-messenger/id874139669?mt=8" target="_blank">signal苹果</a>&nbsp;&nbsp;
 <a href="https://yadi.sk/d/rzQUbW4Q3NCwA7" target="_blank">whatsapp安卓</a>&nbsp;&nbsp;
@@ -28,7 +28,7 @@
 <a href="http://g3.m886h.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://pc8.sss66.us/ssxfr49812035f/user/login.html.auth" target="_blank">Y737会员</a>&nbsp;&nbsp;
+<a href="http://pc10.sss66.us/ssghy361593f/user/login.html.auth" target="_blank">Y737会员</a>&nbsp;&nbsp;
 <a href="http://pc10.sss66.us/ssghy361593a/account/login.html.auth" target="_blank">Y737代理</a>&nbsp;&nbsp;
 <a href="http://pc8.x.sss33.us/ssxfr49812035f/user/login.html.auth" target="_blank">Y739会员</a>&nbsp;&nbsp;
 <a href="http://pc8.sss66.us/ssxfr49812035a/account/login.html.auth" target="_blank">Y739代理</a>&nbsp;&nbsp;
