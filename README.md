@@ -44,7 +44,7 @@
 <br>
 <br>
 彩票导航 &nbsp;&nbsp;&nbsp;SSS改名为SJ666&nbsp;&nbsp;<br>
-<br>验证码>>&nbsp;&nbsp;万里:86086&nbsp;&nbsp;&nbsp;K7:00610&nbsp;&nbsp;&nbsp;SJ666:39853&nbsp;&nbsp;&nbsp;Y737:00658&nbsp;&nbsp;&nbsp;Y739:95959<br>
+<br>验证码>>&nbsp;&nbsp;向你的上线索取.<br>
 <br>
 彩票>>&nbsp;&nbsp;&nbsp;
 <a href="http://a3688.net/" target="_blank">合泰导航=748596</a>&nbsp;&nbsp;&nbsp;
