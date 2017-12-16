@@ -77,8 +77,8 @@
 <br>
 赛马网站<br>
 <br>
-<a href="http://ctb988.net" target="_blank">长城1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://ctb988.com" target="_blank">长城2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.tianmw.com" target="_blank">长城1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.honmw.com" target="_blank">长城2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://cn.lk988.net" target="_blank">长城3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://cn.ctb988.net" target="_blank">长城4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://cn.ctb988.com" target="_blank">长城5</a>&nbsp;&nbsp;&nbsp;
