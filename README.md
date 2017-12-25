@@ -79,7 +79,7 @@
 <br>
 <a href="http://www.tianmw.com" target="_blank">长城1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://www.honmw.com" target="_blank">长城2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://cn.lk988.net" target="_blank">长城3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.honmw.com/login.jsp?e=3&s=true" target="_blank">长城3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://cn.ctb988.net" target="_blank">长城4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://cn.ctb988.com" target="_blank">长城5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://www.ctb988.com/login.jsp?e78d3760-4265-4ce0-bfa8-76a1e44a3537" target="_blank">长城6</a>&nbsp;&nbsp;&nbsp;
