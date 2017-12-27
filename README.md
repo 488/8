@@ -49,7 +49,7 @@
 新万里>>&nbsp;&nbsp;&nbsp;
 <a href="http://wd666.tv/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;<br>
 
-银河>><a href="http://yy23.3508855.com/" target="_blank">银河导航</a>&nbsp;&nbsp;&nbsp;
+银河>><a href="http://yy23.3508855.com/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
