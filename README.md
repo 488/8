@@ -43,8 +43,8 @@
 <a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 &nbsp;&nbsp;&nbsp;SSS改名为SJ666&nbsp;&nbsp;<br>
-<br>验证码>>&nbsp;&nbsp;<br>
+彩票导航 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
+<br>验证码>>&nbsp;&nbsp;向你上线获取<br>
 <br>
 新万里>>&nbsp;&nbsp;&nbsp;
 <a href="http://wd666.tv/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
