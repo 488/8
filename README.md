@@ -44,7 +44,7 @@
 <br>
 <br>
 彩票导航 &nbsp;&nbsp;&nbsp;SSS改名为SJ666&nbsp;&nbsp;<br>
-<br>验证码>>&nbsp;&nbsp;向你的上线索取.<br>
+<br>验证码>>&nbsp;&nbsp;<br>
 <br>
 新万里>>&nbsp;&nbsp;&nbsp;
 <a href="http://wd666.tv/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
