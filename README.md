@@ -47,7 +47,7 @@
 <br>验证码>>&nbsp;&nbsp;向你的上线索取.<br>
 <br>
 新万里>>&nbsp;&nbsp;&nbsp;
-<a href="http://wd666.tv/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;<br>
+<a href="http://wd666.tv/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 银河>>&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="http://yy23.3508855.com/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
