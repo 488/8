@@ -14,8 +14,8 @@
 <a href="http://s1.p.ak1798.com/" target="_blank">333会员</a>&nbsp;&nbsp;
 <a href="http://s1.k.ak1798.com/" target="_blank">333代理</a>&nbsp;&nbsp;
 <a href="https://my.pcloud.com/publink/show?code=kZIPS3ZTu5t4Gl0Vf4KjEpzELes07ydcWW7" target="_blank">赔率参考</a>&nbsp;&nbsp;
-<a href="http://pxhagme1.lot5565.net:8089/member/Welcome.action?searchKeyword=748596" target="_blank">合泰会员</a>&nbsp;&nbsp;
-<a href="http://pxhagme1.lot5565.net:8089/agent/Welcome.action?searchKeyword=748596" target="_blank">合泰代理</a>&nbsp;&nbsp;
+<a href="http://yyw82.t327y.com" target="_blank">合泰会员</a>&nbsp;&nbsp;
+<a href="http://yyw83.t327y.com" target="_blank">合泰代理</a>&nbsp;&nbsp;
 
 <br>
 <br>
@@ -23,8 +23,8 @@
 <a href="http://pm2.x.mmm33.us/epmqa524190a/account/login.html" target="_blank">万里代理</a>&nbsp;&nbsp;
 <a href="http://52.199.78.125:7211/jini329955f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
 <a href="http://52.199.78.125:7211/jini329955a/account/login.html" target="_blank">K7代理</a>&nbsp;&nbsp;
-<a href="http://52.220.196.144:7219/msrtp538187f/user/login.html" target="_blank">SSS会员</a>&nbsp;&nbsp;
-<a href="http://52.220.196.144:7219/msrtp538187a/account/login.html" target="_blank">SSS代理</a>&nbsp;&nbsp;
+<a href="http://w1.x8u9w.com" target="_blank">融创会员</a>&nbsp;&nbsp;
+<a href="http://g1.x8u9w.com" target="_blank">融创代理</a>&nbsp;&nbsp;
 <a href="http://w3.m886h.com/" target="_blank">银河会员</a>&nbsp;&nbsp;
 <a href="http://g3.m886h.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
@@ -38,8 +38,8 @@
 <br>
 <a href="http://ant.jy2828.com/" target="_blank">TsvBet代理1</a>&nbsp;&nbsp;
 <a href="http://byw.shi188.com/" target="_blank">TsvBet代理2</a>&nbsp;&nbsp;
-<a href="https://ag.xbo333.com/" target="_blank">幸运城代理</a>&nbsp;&nbsp;
-<a href="https://ag1.s1288.net/login.aspx" target="_blank">斗鸡网代理</a>&nbsp;&nbsp;
+<a href="https://ag.xbo222.com/" target="_blank">幸运城代理1</a>&nbsp;&nbsp;
+<a href="https://ag.xbo333.com/" target="_blank">幸运城代理2</a>&nbsp;&nbsp;
 <a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <br>
 <br>
@@ -49,7 +49,7 @@
 新万里>>&nbsp;&nbsp;&nbsp;
 <a href="http://wd666.tv/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 银河>>&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="http://yy23.3508855.com/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://yy23.350885.com/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
