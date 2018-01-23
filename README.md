@@ -36,8 +36,8 @@
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
-<a href="http://ant.jy2828.com/" target="_blank">TsvBet代理1</a>&nbsp;&nbsp;
-<a href="http://bj-shen.com/login" target="_blank">金星代理2</a>&nbsp;&nbsp;
+<a href="http://ant.jy2828.com/" target="_blank">TsvBet代理</a>&nbsp;&nbsp;
+<a href="http://bj-shen.com/login" target="_blank">金星代理</a>&nbsp;&nbsp;
 <a href="https://ag.xbo222.com/" target="_blank">幸运城代理1</a>&nbsp;&nbsp;
 <a href="https://ag.xbo333.com/" target="_blank">幸运城代理2</a>&nbsp;&nbsp;
 <a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
