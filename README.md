@@ -1,4 +1,4 @@
-<a href="http://125.tsvbet.com/" target="_blank"><img src="https://media.giphy.com/media/mHOMVb2JuPxjW/giphy.gif" width="240" height="80" border="0"></a>
+<a href="http://bj-shen.com/customer/entry?id=535" target="_blank"><img src="https://media.giphy.com/media/mHOMVb2JuPxjW/giphy.gif" width="240" height="80" border="0"></a>
 <a href="http://www.xbo100.com?a=53501" target="_blank"><img src="https://media.giphy.com/media/xUOxfjj9xLwxYuJH4A/giphy.gif" width="240" height="80" border="0"></a><br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://itunes.apple.com/cn/app/whatsapp-messenger/id310633997?mt=8" target="_blank">whatsapp苹果</a>&nbsp;&nbsp;
 <a href="https://itunes.apple.com/cn/app/signal-private-messenger/id874139669?mt=8" target="_blank">signal苹果</a>&nbsp;&nbsp;
@@ -11,7 +11,7 @@
 <br>
 <a href="http://125.tsvbet.com/" target="_blank">赛马现金网</a>&nbsp;&nbsp;
 <a href="http://www.xbo200.com?a=53501" target="_blank">彩票现金网</a>&nbsp;&nbsp;
-<a href="http://s1.p.ak1798.com/" target="_blank">333会员</a>&nbsp;&nbsp;
+<a href="http://bj-shen.com/customer/entry?id=535" target="_blank">微信现金网</a>&nbsp;&nbsp;
 <a href="http://s1.k.ak1798.com/" target="_blank">333代理</a>&nbsp;&nbsp;
 <a href="https://my.pcloud.com/publink/show?code=kZIPS3ZTu5t4Gl0Vf4KjEpzELes07ydcWW7" target="_blank">赔率参考</a>&nbsp;&nbsp;
 <a href="http://yyw82.t327y.com" target="_blank">合泰会员</a>&nbsp;&nbsp;
@@ -91,7 +91,7 @@
 <a href="http://m8128a.net" target="_blank">万利4</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="http://m8128b.net" target="_blank">万利5</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="http://ws3688.com/" target="_blank">永勝1</a>&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="http://www.ws3688.com/" target="_blank">永勝2</a>&nbsp;&nbsp;&nbsp;&nbsp;<br>
+<a href="http://bj-shen.com/customer/entry?id=535" target="_blank">微信现金网</a>&nbsp;&nbsp;&nbsp;&nbsp;<br>
 
 
 
