@@ -23,8 +23,8 @@
 <a href="http://pm2.x.mmm33.us/epmqa524190a/account/login.html" target="_blank">万里代理</a>&nbsp;&nbsp;
 <a href="http://52.199.78.125:7211/jini329955f/user/login.html" target="_blank">K7会员</a>&nbsp;&nbsp;
 <a href="http://52.199.78.125:7211/jini329955a/account/login.html" target="_blank">K7代理</a>&nbsp;&nbsp;
-<a href="http://http://w55.ql2765.bkk122.com/" target="_blank">融创会员</a>&nbsp;&nbsp;
-<a href="http://http://xq55.wer93.com/" target="_blank">融创代理</a>&nbsp;&nbsp;
+<a href="http://w55.ql2765.bkk122.com/" target="_blank">融创会员</a>&nbsp;&nbsp;
+<a href="http://xq55.wer93.com/" target="_blank">融创代理</a>&nbsp;&nbsp;
 <a href="http://w3.m886h.com/" target="_blank">银河会员</a>&nbsp;&nbsp;
 <a href="http://g3.m886h.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
