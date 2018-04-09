@@ -9,7 +9,7 @@
 
 
 <br>
-<a href="http://125.tsvbet.com/" target="_blank">赛马现金网</a>&nbsp;&nbsp;
+<a href="http://ab2004.net/customer/entry?id=535" target="_blank">微现网页版</a>&nbsp;&nbsp;
 <a href="http://www.xbo200.com?a=53501" target="_blank">彩票现金网</a>&nbsp;&nbsp;
 <a href="http://bj-shen.com/customer/entry?id=535" target="_blank">微信现金网</a>&nbsp;&nbsp;
 <a href="http://s1.k.ak1798.com/" target="_blank">333代理</a>&nbsp;&nbsp;
@@ -41,6 +41,7 @@
 <a href="https://ag.xbo222.com/" target="_blank">幸运城代理1</a>&nbsp;&nbsp;
 <a href="https://ag.xbo333.com/" target="_blank">幸运城代理2</a>&nbsp;&nbsp;
 <a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
+<a href="https://zhishi.ml" target="_blank">彩票论坛</a>&nbsp;&nbsp;
 <br>
 <br>
 彩票导航 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
@@ -48,6 +49,7 @@
 <br>
 新万里>>&nbsp;&nbsp;&nbsp;
 <a href="http://wd666.tv/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="http://wd666.me/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 银河>>&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="http://yy23.350885.com/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <br>
