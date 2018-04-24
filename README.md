@@ -51,8 +51,8 @@
 <a href="http://wd666.tv/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="http://wd666.me/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 新融创>>&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="http://b1.59886688.xyz/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://b2.59886688.xyz/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://jx678.xyz/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://f2.59886688.xyz/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
