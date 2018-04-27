@@ -56,9 +56,9 @@
 <br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://su121.net:8000 " target="_blank">总导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://mf76.qr68.us/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://mf33.qr62.us/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://vst520.net/ " target="_blank">总导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://vv615.com/" target="_blank">总导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://su121.net:8000" target="_blank">总导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://acf3.qr68.us/" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://mf1.aa288.net/" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://1.c7799.ws" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
@@ -67,9 +67,9 @@
 <br>
 <br>
 时时彩>>&nbsp;&nbsp;&nbsp;
-<a href="http://su121.net:8000 " target="_blank">总导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://sf33.qr68.us/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://sf207.qr68.us/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://vst520.net/ " target="_blank">总导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://vv615.com/" target="_blank">总导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://su121.net:8000" target="_blank">总导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://acf1.qr68.us/" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://n1.aa288.net/" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.78.170.33" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
