@@ -14,8 +14,8 @@
 <a href="http://bj-shen.com/customer/entry?id=535" target="_blank">微信现金网</a>&nbsp;&nbsp;
 <a href="http://s1.k.ak1798.com/" target="_blank">333代理</a>&nbsp;&nbsp;
 <a href="https://my.pcloud.com/publink/show?code=kZIPS3ZTu5t4Gl0Vf4KjEpzELes07ydcWW7" target="_blank">赔率参考</a>&nbsp;&nbsp;
-<a href="http://yyw82.t327y.com" target="_blank">合泰会员</a>&nbsp;&nbsp;
-<a href="http://yyw83.t327y.com" target="_blank">合泰代理</a>&nbsp;&nbsp;
+<a href="http://t1.58586868.xyz/" target="_blank">合泰会员</a>&nbsp;&nbsp;
+<a href="http://t2.58586868.xyz/" target="_blank">合泰代理</a>&nbsp;&nbsp;
 
 <br>
 <br>
