@@ -47,9 +47,9 @@
 彩票导航 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
 <br>验证码>>&nbsp;&nbsp;向你上线获取<br>
 <br>
-新万里>>&nbsp;&nbsp;&nbsp;
+恒星>>&nbsp;&nbsp;&nbsp;
 <a href="http://wd666.tv/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="http://wd666.me/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="http://w1.wd666.tv/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 新融创>>&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="http://jx678.xyz/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://f2.59886688.xyz/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<br>
