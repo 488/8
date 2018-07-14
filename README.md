@@ -68,7 +68,7 @@
 <a href="http://mf1.aa288.net/" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://1.c7799.ws" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
 <a href="http://3.aa686.net/" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;
-<a href="http://a1.yes168.org/" target="_blank">导航8</a>&nbsp;&nbsp;&nbsp;
+<a href="http://a1.yes168.com/" target="_blank">导航8</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 时时彩>>&nbsp;&nbsp;&nbsp;
