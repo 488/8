@@ -58,12 +58,15 @@
 <a href="http://bw1.htd188.com/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://bw2.htd188.com/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://bw3.htd188.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://bw1.91ebs.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://bw2.91ebs.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://bw3.91ebs.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
 六合彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://vst520.net/ " target="_blank">总导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://vv615.com/" target="_blank">总导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://su121.net:8000" target="_blank">总导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.svn733.com" target="_blank">总导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://acf3.qr68.us/" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://mf1.aa288.net/" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://1.c7799.ws" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
@@ -74,7 +77,7 @@
 时时彩>>&nbsp;&nbsp;&nbsp;
 <a href="http://vst520.net/ " target="_blank">总导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://vv615.com/" target="_blank">总导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://su121.net:8000" target="_blank">总导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://www.svn733.com" target="_blank">总导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://acf1.qr68.us/" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
 <a href="http://n1.aa288.net/" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
 <a href="http://52.78.170.33" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
@@ -195,10 +198,10 @@ M8<br>
 <a href="https://m.live016.com" target="_blank">手机会员4</a> &nbsp; &nbsp; &nbsp;<br>
 <br>
 <a href="https://ag.live228.com" target="_blank">代理1</a> &nbsp; &nbsp; &nbsp;
-<a href="https://ag.live012.com" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;
-<a href="https://ag.live015.com" target="_blank">代理3</a> &nbsp; &nbsp; &nbsp;
-<a href="https://ag.live016.com" target="_blank">代理4</a> &nbsp; &nbsp; &nbsp;
-<a href="https://228.live228.com" target="_blank">旧帐</a> &nbsp; &nbsp; &nbsp;<br>
+<a href="https://ag.live1288.com" target="_blank">代理2</a>&nbsp; &nbsp; &nbsp;
+<a href="https://ag.live3888.com" target="_blank">代理3</a> &nbsp; &nbsp; &nbsp;
+<a href="https://ag.live4888.com" target="_blank">代理4</a> &nbsp; &nbsp; &nbsp;
+<a href="https://228.live2888.com" target="_blank">旧帐</a> &nbsp; &nbsp; &nbsp;<br>
 
 　</p>
 其它网站<br>
