@@ -36,12 +36,12 @@
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
 <a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
 <br>
-<a href="http://ant.jy2828.com/" target="_blank">TsvBet代理</a>&nbsp;&nbsp;
+<a href="http://ttss6.com/" target="_blank">新天时代理</a>&nbsp;&nbsp;
 <a href="http://bj-shen.com/login" target="_blank">金星代理</a>&nbsp;&nbsp;
 <a href="https://ag.xbo222.com/" target="_blank">幸运城代理1</a>&nbsp;&nbsp;
 <a href="http://agent.esk888.com/" target="_blank">电竟王代理</a>&nbsp;&nbsp;
 <a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
-<a href="http://affiliate.esk888.com/" target="_blank">电竟王代理2</a>&nbsp;&nbsp;
+<a href="http://ttss2.com/" target="_blank">新天时总代理</a>&nbsp;&nbsp;
 <br>
 <br>
 彩票导航 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
