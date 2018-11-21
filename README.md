@@ -54,10 +54,9 @@
 <a href="http://jx678.xyz/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://f2.59886688.xyz/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
+AK>>&nbsp;&nbsp;&nbsp;
+<a href="http://sc2288.co/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 鸿利>>&nbsp;&nbsp;&nbsp;
-<a href="http://bw1.htd188.com/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://bw2.htd188.com/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
-<a href="http://bw3.htd188.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://bw1.91ebs.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://bw2.91ebs.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://bw3.91ebs.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
