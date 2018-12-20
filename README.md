@@ -40,7 +40,7 @@
 <a href="http://bj-shen.com/login" target="_blank">金星代理</a>&nbsp;&nbsp;
 <a href="https://ag.xbo222.com/" target="_blank">幸运城代理1</a>&nbsp;&nbsp;
 <a href="http://agent.esk888.com/" target="_blank">电竟王代理</a>&nbsp;&nbsp;
-<a href="http://789ddd.cc" target="_blank">上岗工人</a>&nbsp;&nbsp;
+<a href="http://ag.cc138.net/" target="_blank">长城现金网代理</a>&nbsp;&nbsp;
 <a href="http://ttss2.com/" target="_blank">新天时总代理</a>&nbsp;&nbsp;
 <br>
 <br>
@@ -56,6 +56,7 @@
 <br>
 AK>>&nbsp;&nbsp;&nbsp;
 <a href="http://sc2288.co/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://sc6666.co/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 鸿利>>&nbsp;&nbsp;&nbsp;
 <a href="http://bw1.91ebs.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://bw2.91ebs.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
