@@ -56,7 +56,7 @@
 <br>
 AK>>&nbsp;&nbsp;&nbsp;
 <a href="http://sc2288.co/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://sc6666.co/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://sc6666.co/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 鸿利>>&nbsp;&nbsp;&nbsp;
 <a href="http://bw1.91ebs.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 <a href="http://bw2.91ebs.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
