@@ -29,7 +29,7 @@
 <a href="http://g3.m886h.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://789tk.tk" target="_blank">Y737上岗工人</a>&nbsp;&nbsp;
+<a href="http://789tk.tk" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <a href="http://pc10.sss66.us/ssghy361593a/account/login.html.auth" target="_blank">Y737代理</a>&nbsp;&nbsp;
 <a href="http://pc8.x.sss33.us/ssxfr49812035f/user/login.html.auth" target="_blank">Y739会员</a>&nbsp;&nbsp;
 <a href="http://pc8.sss66.us/ssxfr49812035a/account/login.html.auth" target="_blank">Y739代理</a>&nbsp;&nbsp;
