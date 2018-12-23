@@ -29,7 +29,7 @@
 <a href="http://g3.m886h.com/" target="_blank">银河代理</a>&nbsp;&nbsp;
 <br>
 <br>
-<a href="http://pc8.1ll11.com/ssxfr49125361f/user/login.html.auth" target="_blank">Y737会员</a>&nbsp;&nbsp;
+<a href="https://789tk.tk" target="_blank"上岗工人</a>&nbsp;&nbsp;
 <a href="http://pc10.sss66.us/ssghy361593a/account/login.html.auth" target="_blank">Y737代理</a>&nbsp;&nbsp;
 <a href="http://pc8.x.sss33.us/ssxfr49812035f/user/login.html.auth" target="_blank">Y739会员</a>&nbsp;&nbsp;
 <a href="http://pc8.sss66.us/ssxfr49812035a/account/login.html.auth" target="_blank">Y739代理</a>&nbsp;&nbsp;
@@ -58,7 +58,7 @@ AK>>&nbsp;&nbsp;&nbsp;
 <a href="http://sc2288.co/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://sc6666.co/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 太阳城>>&nbsp;&nbsp;&nbsp;
-<a href="https://13.tt/" target="_blank">导航</a>&nbsp;&nbsp;&nbsp;
+<a href="https://13.tt/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://1388771.com/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
