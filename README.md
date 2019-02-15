@@ -54,9 +54,14 @@
 <a href="http://jx678.xyz/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://f2.59886688.xyz/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
-AK>>&nbsp;&nbsp;&nbsp;
+阳泰,泰山,AK>>&nbsp;&nbsp;&nbsp;
 <a href="http://sc2288.co/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="http://sc6666.co/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://w1.sc1366.co/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://w2.sc1366.co/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
+<a href="http://w3.sc1366.co/" target="_blank">导航4</a>&nbsp;&nbsp;&nbsp;
+<a href="http://w5.sc1366.co/" target="_blank">导航5</a>&nbsp;&nbsp;&nbsp;
+<a href="http://w7.sc1366.co/" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
+<a href="http://w8.sc1366.co/" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;
 太阳城>>&nbsp;&nbsp;&nbsp;
 <a href="https://13.tt/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://1388771.com/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
