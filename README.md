@@ -39,7 +39,7 @@
 <a href="http://ttss6.com/" target="_blank">新天时代理</a>&nbsp;&nbsp;
 <a href="http://bj-shen.com/login" target="_blank">金星代理</a>&nbsp;&nbsp;
 <a href="https://ag.xbo222.com/" target="_blank">幸运城代理1</a>&nbsp;&nbsp;
-<a href="http://agent.esk888.com/" target="_blank">电竟王代理</a>&nbsp;&nbsp;
+<a href="http://abc9093.net/daili/" target="_blank">添好运代理</a>&nbsp;&nbsp;
 <a href="http://ag.cc138.net/" target="_blank">长城现金网代理</a>&nbsp;&nbsp;
 <a href="http://ttss2.com/" target="_blank">新天时总代理</a>&nbsp;&nbsp;
 <br>
@@ -157,12 +157,12 @@ M8<br>
 <a href="http://m8agent.com/Default.aspx?lang=ZH-CN" target="_blank">代理4 </a>&nbsp;&nbsp;&nbsp;
 <br>
 <br>
-新腾讯<br>
+利记<br>
 <br>
-<a href="http://www.xtx2288.com/" target="_blank">会员1 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://xtx2288.com/" target="_blank">会员2 </a>&nbsp;&nbsp;&nbsp;
-<a href="https://xtx2288.com/" target="_blank">代理1</a>&nbsp;&nbsp;&nbsp;
-<a href="https://xtx3388.com/" target="_blank">代理2</a>&nbsp;&nbsp;&nbsp;
+<a href="http://goodaces.com/" target="_blank">会员1 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://goodaces.com/" target="_blank">会员2 </a>&nbsp;&nbsp;&nbsp;
+<a href="http://agent.goodaces.com/" target="_blank">代理1</a>&nbsp;&nbsp;&nbsp;
+<a href="http://agent.goodaces.com/" target="_blank">代理2</a>&nbsp;&nbsp;&nbsp;
 
 <br>
 
