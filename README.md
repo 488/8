@@ -34,7 +34,7 @@
 <a href="http://pc8.x.sss33.us/ssxfr49812035f/user/login.html.auth" target="_blank">Y739会员</a>&nbsp;&nbsp;
 <a href="http://pc8.sss66.us/ssxfr49812035a/account/login.html.auth" target="_blank">Y739代理</a>&nbsp;&nbsp;
 <a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
-<a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;<br>
+<a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;
 <a href="https://peing.net/zh-TW/lk988?tab=answerbox&page=1&event=0" target="_blank">联系我们</a>&nbsp;&nbsp;<br>
 <br>
 <a href="http://ttss6.com/" target="_blank">新天时代理</a>&nbsp;&nbsp;
@@ -45,7 +45,7 @@
 <a href="http://ttss2.com/" target="_blank">新天时总代理</a>&nbsp;&nbsp;
 <br>
 <br>
-彩票导航 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
+彩票导航 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <br>验证码>>&nbsp;&nbsp;向你上线获取<br>
 <a href="https://peing.net/zh-TW/lk988?tab=answerbox&page=1&event=0" target="_blank">联系我们</a>&nbsp;&nbsp;<br>
 <br>
