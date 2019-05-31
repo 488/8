@@ -46,7 +46,7 @@
 <br>
 <br>
 彩票导航 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<br>验证码>>&nbsp;&nbsp;向你上线获取<br>
+<br>验证码>>&nbsp;&nbsp;向你上线获取
 <a href="https://peing.net/zh-TW/lk988?tab=answerbox&page=1&event=0" target="_blank">联系我们</a>&nbsp;&nbsp;<br>
 <br>
 奔富>>&nbsp;&nbsp;&nbsp;
