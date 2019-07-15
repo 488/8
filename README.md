@@ -30,11 +30,11 @@
 <br>
 <br>
 <a href="http://789tk.tk" target="_blank">上岗工人</a>&nbsp;&nbsp;
-<a href="http://pc10.sss66.us/ssghy361593a/account/login.html.auth" target="_blank">Y737代理</a>&nbsp;&nbsp;
-<a href="http://pc8.x.sss33.us/ssxfr49812035f/user/login.html.auth" target="_blank">Y739会员</a>&nbsp;&nbsp;
-<a href="http://pc8.sss66.us/ssxfr49812035a/account/login.html.auth" target="_blank">Y739代理</a>&nbsp;&nbsp;
-<a href="http://hp688.net/" target="_blank">SK2会员</a>&nbsp;&nbsp;
-<a href="https://ag.in566.net/888.php" target="_blank">SK2代理</a>&nbsp;&nbsp;
+<a href="https://www.m8666.online/Default1.aspx?r=" target="_blank">M8会员</a>&nbsp;&nbsp;
+<a href="https://www.m8666.cc/Default1.aspx?r=" target="_blank">M8会员</a>&nbsp;&nbsp;
+<a href="http://mobile.m8666.cc/apps/index.html" target="_blank">M8手机</a>&nbsp;&nbsp;
+<a href="https://mobile.m8666.online/apps/index.html" target="_blank">M8手机</a>&nbsp;&nbsp;
+<a href="http://m82u.com/Public/Default1.aspx?lang=ZH-CN" target="_blank">M8代理</a>&nbsp;&nbsp;
 <a href="https://peing.net/zh-TW/github?event=0" target="_blank">联系我们</a>&nbsp;&nbsp;<br>
 <br>
 <a href="http://ttss6.com/" target="_blank">新天时代理</a>&nbsp;&nbsp;
