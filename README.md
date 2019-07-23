@@ -32,9 +32,10 @@
 <a href="http://789tk.tk" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <a href="https://www.m8666.online/" target="_blank">M8会员</a>&nbsp;&nbsp;
 <a href="https://www.m8666.cc/" target="_blank">M8会员</a>&nbsp;&nbsp;
-<a href="http://mobile.m8666.cc/apps/index.html" target="_blank">M8手机</a>&nbsp;&nbsp;
+<a href="https://mobile.m8666.cc/apps/index.html" target="_blank">M8手机</a>&nbsp;&nbsp;
 <a href="https://mobile.m8666.online/apps/index.html" target="_blank">M8手机</a>&nbsp;&nbsp;
-<a href="http://m82u.com/Public/Default1.aspx?lang=ZH-CN" target="_blank">M8代理</a>&nbsp;&nbsp;
+<a href="http://ag.m8666.online/" target="_blank">M8代理</a>&nbsp;&nbsp;
+<a href="http://ag,m8666.cc.com/" target="_blank">M8代理</a>&nbsp;&nbsp;
 <a href="https://peing.net/zh-TW/github?event=0" target="_blank">联系我们</a>&nbsp;&nbsp;<br>
 <br>
 <a href="http://ttss6.com/" target="_blank">新天时代理</a>&nbsp;&nbsp;
