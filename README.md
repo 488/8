@@ -4,7 +4,7 @@
 <a href="https://itunes.apple.com/cn/app/signal-private-messenger/id874139669?mt=8" target="_blank">signal苹果</a>&nbsp;&nbsp;
 <a href="https://yadi.sk/d/rzQUbW4Q3NCwA7" target="_blank">whatsapp安卓</a>&nbsp;&nbsp;
 <a href="https://yadi.sk/d/ok_tta9T3NCw7u" target="_blank">signal安卓</a>&nbsp;&nbsp;
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示:M8测试账号ss9991,ss9992,ss9993 密码 aa1111）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示:M8测试账号ss9991,ss9992,ss9993 密码 aa1111 平均返水高达5%）
 <br>
 
 
@@ -30,8 +30,8 @@
 <br>
 <br>
 <a href="http://789tk.tk" target="_blank">上岗工人</a>&nbsp;&nbsp;
-<a href="https://www.m8666.online/" target="_blank">M8会员</a>&nbsp;&nbsp;
-<a href="https://www.m8666.cc/" target="_blank">M8会员</a>&nbsp;&nbsp;
+<a href="https://www.m8666.online/" target="_blank">M8皇冠版</a>&nbsp;&nbsp;
+<a href="https://www.m8666.cc/" target="_blank">M8皇冠版</a>&nbsp;&nbsp;
 <a href="https://mobile.m8666.cc/apps/index.html" target="_blank">M8手机</a>&nbsp;&nbsp;
 <a href="https://mobile.m8666.online/apps/index.html" target="_blank">M8手机</a>&nbsp;&nbsp;
 <a href="http://ag.m8666.online/" target="_blank">M8代理</a>&nbsp;&nbsp;
