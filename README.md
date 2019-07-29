@@ -32,7 +32,7 @@
 <a href="http://789tk.tk" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <a href="https://www.m8666.online/" target="_blank">M8皇冠版</a>&nbsp;&nbsp;
 <a href="https://www.m8666.cc/" target="_blank">M8皇冠版</a>&nbsp;&nbsp;
-<a href="https://m8666.cc/apps/" target="_blank">M8手机</a>&nbsp;&nbsp;
+<a href="https://m8666.cc/" target="_blank">M8手机</a>&nbsp;&nbsp;
 <a href="https://m8666.online/" target="_blank">M8手机</a>&nbsp;&nbsp;
 <a href="http://ag.m8666.online/" target="_blank">M8代理</a>&nbsp;&nbsp;
 <a href="http://ag.m8666.cc/" target="_blank">M8代理</a>&nbsp;&nbsp;
