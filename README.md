@@ -50,9 +50,9 @@
 <br>验证码>>&nbsp;&nbsp;向你上线获取&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="https://peing.net/zh-TW/github?event=0" target="_blank">联系我们</a>&nbsp;&nbsp;<br>
 <br>
-奔富>>&nbsp;&nbsp;&nbsp;
-<a href="http://w1.wd12366.me/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-<a href="http://w1.wd2388.tv/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+合胜>>&nbsp;&nbsp;&nbsp;
+<a href="http://w2.wd12388.tv/Navigation/NavigateByTarget?SafeCode=55823" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="http://w1.wd12388.tv/Navigation/NavigateByTarget?SafeCode=55823" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 新融创>>&nbsp;&nbsp;&nbsp;&nbsp;
 <a href="http://jx678.xyz/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
 <a href="http://f2.59886688.xyz/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;<br>
@@ -66,9 +66,9 @@
 <a href="http://w7.sc1366.co/" target="_blank">导航6</a>&nbsp;&nbsp;&nbsp;
 <a href="http://w8.sc1366.co/" target="_blank">导航7</a>&nbsp;&nbsp;&nbsp;<br>
 <br>
-太阳城>>&nbsp;&nbsp;&nbsp;
-<a href="https://13.tt/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
-<a href="https://138789.co/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
+祥宇>>&nbsp;&nbsp;&nbsp;
+<a href="https://138789.co/" target="_blank">导航1</a>&nbsp;&nbsp;&nbsp;
+<a href="https://138111.co/" target="_blank">导航2</a>&nbsp;&nbsp;&nbsp;
 <a href="http://1388771.com/" target="_blank">导航3</a>&nbsp;&nbsp;&nbsp;
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 818>>
@@ -162,10 +162,10 @@
 <br>
 M8<br>
 <br>
-<a href="http://www.m8online.net/Default6.aspx?r=" target="_blank">会员1 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.m8bet.net" target="_blank">会员2 </a>&nbsp;&nbsp;&nbsp;
-<a href="http://www.m8clicks.com" target="_blank">会员3 </a>&nbsp;&nbsp;&nbsp;
-<a href="http:// www.m8m8bet.com" target="_blank">会员4 </a>&nbsp;&nbsp;&nbsp;
+<a href="https://www.m8666.cc/" target="_blank">会员1 </a>&nbsp;&nbsp;&nbsp;
+<a href="https://www.m8666.online/" target="_blank">会员2 </a>&nbsp;&nbsp;&nbsp;
+<a href="https://mobile.m8666.cc/" target="_blank">手机1 </a>&nbsp;&nbsp;&nbsp;
+<a href="http:// mobile.m8666.online" target="_blank">手机2 </a>&nbsp;&nbsp;&nbsp;
 <a href="http://www.mywinday.com/Default.aspx?lang=ZH-CN" target="_blank">代理1 </a>&nbsp;&nbsp;&nbsp;
 <a href="http://ag.mywinday.com/Default.aspx?lang=ZH-CN" target="_blank">代理2 </a>&nbsp;&nbsp;&nbsp;
 <a href="http://ag.m8clicks.com/Default.aspx?lang=ZH-CN" target="_blank">代理3 </a>&nbsp;&nbsp;&nbsp;
