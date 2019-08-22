@@ -32,8 +32,8 @@
 <a href="http://789tk.tk" target="_blank">上岗工人</a>&nbsp;&nbsp;
 <a href="https://www.m8666.online/" target="_blank">M8皇冠版</a>&nbsp;&nbsp;
 <a href="https://www.m8666.cc/" target="_blank">M8皇冠版</a>&nbsp;&nbsp;
-<a href="https://m8666.cc/" target="_blank">M8手机</a>&nbsp;&nbsp;
-<a href="https://m8666.online/" target="_blank">M8手机</a>&nbsp;&nbsp;
+<a href="https://m.m8666.cc/" target="_blank">M8手机</a>&nbsp;&nbsp;
+<a href="https://m.m8666.online/" target="_blank">M8手机</a>&nbsp;&nbsp;
 <a href="http://ag.m8666.online/" target="_blank">M8代理</a>&nbsp;&nbsp;
 <a href="http://ag.m8666.cc/" target="_blank">M8代理</a>&nbsp;&nbsp;
 <a href="https://peing.net/zh-TW/github?event=0" target="_blank">联系我们</a>&nbsp;&nbsp;<br>
@@ -164,8 +164,8 @@ M8<br>
 <br>
 <a href="https://www.m8666.cc/" target="_blank">会员1 </a>&nbsp;&nbsp;&nbsp;
 <a href="https://www.m8666.online/" target="_blank">会员2 </a>&nbsp;&nbsp;&nbsp;
-<a href="https://mobile.m8666.cc/" target="_blank">手机1 </a>&nbsp;&nbsp;&nbsp;
-<a href="https://mobile.m8666.online/" target="_blank">手机2 </a>&nbsp;&nbsp;&nbsp;
+<a href="https://m.m8666.cc/" target="_blank">手机1 </a>&nbsp;&nbsp;&nbsp;
+<a href="https://m.m8666.online/" target="_blank">手机2 </a>&nbsp;&nbsp;&nbsp;
 <a href="http://www.mywinday.com/Default.aspx?lang=ZH-CN" target="_blank">代理1 </a>&nbsp;&nbsp;&nbsp;
 <a href="http://ag.mywinday.com/Default.aspx?lang=ZH-CN" target="_blank">代理2 </a>&nbsp;&nbsp;&nbsp;
 <a href="http://ag.m8clicks.com/Default.aspx?lang=ZH-CN" target="_blank">代理3 </a>&nbsp;&nbsp;&nbsp;
