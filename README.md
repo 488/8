@@ -4,7 +4,7 @@
 <a href="https://itunes.apple.com/cn/app/signal-private-messenger/id874139669?mt=8" target="_blank">signal苹果</a>&nbsp;&nbsp;
 <a href="https://yadi.sk/d/rzQUbW4Q3NCwA7" target="_blank">whatsapp安卓</a>&nbsp;&nbsp;
 <a href="https://yadi.sk/d/ok_tta9T3NCw7u" target="_blank">signal安卓</a>&nbsp;&nbsp;
-<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示:M8测试账号ss9991,ss9992,ss9993 密码 aa1111 明暗退水较高,可以打水）
+<p>直达线路&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(提示:M8测试账号ss9991,ss9992,ss9993 密码 aa1111 支持球场走势,现场直播）
 <br>
 
 
